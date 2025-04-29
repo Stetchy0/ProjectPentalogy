@@ -1,1 +1,1 @@
-Aiko is [[Loki]]'s girlfriend and the main antagonist of Project: Hope Effect.
+Aiko is [[Loki]]'s girlfriend and the main protagonist of Project: Hope Effect.
