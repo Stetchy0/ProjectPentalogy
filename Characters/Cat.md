@@ -1,1 +1,1 @@
-#syntheticdemon
+#syntheticdemon![[Cat.png]]![[Image Gallery/Art by Stetchy0/Cat 1.png]]![[Image Gallery/Art by Stetchy0/Catherine.png]]![[Catherine WIP.png]]
