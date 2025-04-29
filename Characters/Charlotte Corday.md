@@ -1,0 +1,3 @@
+[[Chrys|Chrysanthemum]] Corday’s younger biological sister. She joined the rebellion against the [[Black Crusaders]] after Chrys became a general. She was executed for murdering [[Lavender|Lavender Harse]].
+
+Her actions single-handedly removed two out of three generals during that period, deeply weakening Crusader organization. A year after her hanging, fellow rebels started a riot called the [[March of Remembrance]] 
