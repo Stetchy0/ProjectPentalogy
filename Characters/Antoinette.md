@@ -6,3 +6,4 @@ tags:
   - farther-earth
   - gay
 ---
+Antoinette is [[S]]'s girlfriend (abuser).
