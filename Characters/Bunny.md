@@ -1,3 +1,14 @@
+---
+aliases:
+  - Noah
+tags:
+  - blackcrusader
+  - crusader-general
+  - far-earth
+  - farther-earth
+  - gay
+  - syntheticdemon
+---
 #syntheticdemon
 
 Noah, or General Bunny of the [[Black Crusaders]], contains the synthetic demon of a rabbit. As the youngest and newest general, he is notoriously rude, sadistic, violent, and a raging misogynist. 
