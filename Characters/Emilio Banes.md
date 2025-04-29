@@ -5,3 +5,4 @@ tags:
   - human
   - pre-story
 ---
+![[Emilio Baines.png]]
