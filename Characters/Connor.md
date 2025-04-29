@@ -18,4 +18,4 @@ Connor Smith, originally born Carter Smith, is one of many of the [[Black Crusad
 
 Connor is [[Felix]]'s brother. He, Felix, and [[Leo]] were all kidnapped simultaneously by [[Marx]] and [[Natz]]. ([[Black Crusaders]])
 
-![[image.png]]![[IMG_0200.png]]![[IMG_0209.png]]![[Untitled156_20201116100750.png]]
+![[Connor1.png]]![[Connor, Lee, Pherenix.png]]![[Image Gallery/Art by Kozypugs/Connor.png]]![[Image Gallery/Art by Stetchy0/Connor.png]]
