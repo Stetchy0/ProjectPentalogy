@@ -1,0 +1,1 @@
+Pherenix is the synesthesia of [[Pheren]] and [[Felix]]. He is only achieved when both are in complete symbiosis. While it seems Pheren controls the body most of the time, its really Felix tugging the strings.
