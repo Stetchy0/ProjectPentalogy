@@ -1,1 +1,1 @@
-#syntheticdemon 
+#syntheticdemon ![[Bee, Zayne, Soren, Redacted.png]]![[BeeZayne Smokers.jpg]]
