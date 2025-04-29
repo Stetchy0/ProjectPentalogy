@@ -11,7 +11,7 @@ tags:
   - crusader-general
   - farther-earth
 ---
-Chrysanthemum Corday has the [[synthetic demon]] of a deer, hence the antlers on his head and the tuffs of hair that appear to look like ears. 
+Chrysanthemum Corday has attributes of a deer to his encounter with a  [[synthetic demon]], hence the antlers on his head and the tuffs of hair that appear to look like ears. He is one of the only individuals to outsmart his demon.
 
 Chrys used to be a ruthless general of the [[Black Crusaders]] until his sister, [[Charlotte Corday]], murdered General [[Lavender]], the brother they grew up with. 
 
