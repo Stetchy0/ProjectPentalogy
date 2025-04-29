@@ -15,4 +15,4 @@ Noah, or General Bunny of the [[Black Crusaders]], contains the synthetic demon 
 
 He earned his position partly because the general he looks up to, [[Fox]], put in a good word for him.
 
-He hates women because he’s gay. He’s happily dating Tyler Hughs, and he oversees the lower ranks.
+He hates women because he’s gay. He’s happily dating [[Taka]], and he oversees the lower ranks.
