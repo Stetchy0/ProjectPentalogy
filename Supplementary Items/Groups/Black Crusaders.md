@@ -20,8 +20,8 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	- following X's breakthrough with synthetic demon transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
 	- made organization military
 	- [[Connor]] creates refined [[Anthracyllin]]
-		[[Rei]], [[Connor]], [[Leo]], [[Vi]], [[Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
-			-[[Pherenix]] briefly led the crusaders under Marx's direction and Marx would've appointed him to be leader, but the Coup de Tat prevented that from happening. Pherenix, now more stable and less manic, lost interest in the crusades and deserted to be with his lover, [[Ameille]].
+	- [[Rei]], [[Connor]], [[Leo]], [[Vi]], [[Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
+	-[[Pherenix]] briefly led the crusaders under Marx's direction and Marx would've appointed him to be leader, but the Coup de Tat prevented that from happening. Pherenix, now more stable and less manic, lost interest in the crusades and deserted to be with his lover, [[Ameille]].
 			
 [[Natz]] 
 	
@@ -46,7 +46,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	- Crusaders become powerful again
 	- crosses dimensional barrier - [[Connor's Inventions]]
 	- killed in [[Project Hope Effect]]
-		 [[Rat]], [[Loki]], [[S]], [[Kira]], [[Taka]], [[Chrys]], [[Green]], [[Dami]], [[Bunny]], [[Fox]], [[Kiki]]
+	- [[Rat]], [[Loki]], [[S]], [[Kira]], [[Taka]], [[Chrys]], [[Green]], [[Dami]], [[Bunny]], [[Fox]], [[Kiki]]
 
 [[Kieran]] 
 
@@ -58,7 +58,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	- ranks become very small
 	- only crusader monarch to actually work in the field while leading
 	- youngest leader - child prodigy
-		[[Bee]], [[Zayne]], [[Soren]], [[Dami]]
+	- [[Bee]], [[Zayne]], [[Soren]], [[Dami]]
 
 [[Dami]]
 
