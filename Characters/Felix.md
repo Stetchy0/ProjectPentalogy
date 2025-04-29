@@ -1,0 +1,4 @@
+#syntheticdemon 
+Felix Smith, who was for a brief time the leader of the [[Black Crusaders]], is a father to [[Dami]] and [[Persephone]]. He shares a body with his demon, _[[Pheren]]._ They would eventually earn the nickname Pherenix.
+
+He was briefly possessed by [[Mephisto]] while being kidnapped by Marx and Natz. His enormous show of power earned him Marx's curiosity and adoration, as well as respect and fear. Felix, possessed at that moment, released explosive flames that resembled Marx's mentor and the previous leader of the crusaders, [[X]]. This would be no coincidence, because in all technicality, the being possessing him is X's father, Mephisto. Mephisto is also the evolution of Dami, who is Felix's son. This would, oddly enough, make X Felix's grandson, though no one would ever know this.
