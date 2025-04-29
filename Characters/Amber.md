@@ -1,3 +1,14 @@
+---
+aliases:
+  - Amy
+  - Amber
+  - Amy Hoff
+tags:
+  - close-earth
+  - closer-earth
+  - gay
+---
+
 Amber “Amy” Hoff is one of the members of [[Project Hope Effect]], and the introvert adopted by [[Konnie]]. 
 
 She is fairly quiet, nonchalant, soft spoken, and sensitive. She struggles with an eating disorder because of her abusive mother who takes every opportunity to insult and threaten her. Nonetheless, she remains kindhearted and she tries to conceal the effects of her home life by keeping to herself. 
