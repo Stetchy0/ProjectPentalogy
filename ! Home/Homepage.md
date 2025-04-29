@@ -3,6 +3,8 @@ The Project Pentalogy is a large, work in progress, passion project revolving ar
 IMPORTANT DISCLAIMER: this story is not yet fully realized in text or comic form; however, it has been generally outlined. Any and all information organized here WILL BE SPOILERS FOR THE FINAL PROJECT. If you would like to enjoy this story when it is fully realized, then do not proceed very far.
 
 https://www.tumblr.com/blog/ststchy
+https://www.tumblr.com/stetchy2 (Project specific blog)
+
 https://www.tumblr.com/kozyeatspho
 
 Hopefully this will one day be fully realized, but in the meantime, it will be carefully planned and organized.
