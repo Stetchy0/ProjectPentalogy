@@ -1,5 +1,15 @@
+---
+aliases:
+  - knights
+  - the knights
+  - crusaders
+  - the crusaders
+  - black death
+---
 The Black Crusaders were an organization founded by Xerxes, better known as 
 [[X]], to seek great and mystical powers and abilities, [[Pursuit of Power]], pushing far beyond anything ethical, by any means necessary. 
+
+During Marx's reign, the public took to calling the crusaders "knights" because they often protected small towns and did jobs and bounties to gain the public's trust.
 
 HISTORY OF LEADERSHIP
 Throughout the metamorphoses of the organization, the leadership changed drastically in name, style, and of course, the people filling the position.
