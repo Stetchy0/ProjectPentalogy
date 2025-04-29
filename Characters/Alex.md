@@ -33,4 +33,9 @@ Later on his path, he met another lost soul in the city while buying supplies. A
 | ### Combat              |                                                                                                                              |
 | Weapons                 | He mainly uses magic, only for defense                                                                                       |
 | Skills                  | He is talented with destructive magic, mainly flames.                                                                        |
-| Abilities               | He tries to avoid using any of his demonic abilities because it causes him to regress to his earlier form.                   |
+| Abilities               | He tries to avoid using any of his demonic abilities because it causes him to regress to his earlier form.                   |![[alexei.png]]
+![[Alex, Dami.jpg]]
+![[Alex1.png]]
+![[Alex2.jpg]]
+![[Alex3.jpg]]
+![[Alex4.jpg]]
