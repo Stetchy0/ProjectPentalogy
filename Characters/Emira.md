@@ -5,3 +5,5 @@ Emira is very academically bright, social, and organized, but also struggles wit
 Element: Water
 
 Her ability is healing to compensate for the physical self-harm she copes with.
+
+![[IMG_6167.jpeg]]
