@@ -23,4 +23,4 @@ His distress made him vulnerable to being possessed by a vengeful poltergeist, w
 
 In an impulsive attempt to kill the other generals (along with himself), he accidentally opens a portal to [[Closer Earth]], leading to all of the conflict in the latter 3 parts of the pentalogy.
 
-![[IMG_1038.jpeg]]
+![[Chrys 4.jpeg]]
