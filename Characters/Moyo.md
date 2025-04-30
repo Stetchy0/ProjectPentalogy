@@ -20,3 +20,5 @@ Having that one good friend does wonders, but it unfortunately doesn’t stop th
 Element: Wind
 
 They have the power of extreme strength to compensate for their inability to fight their drug addiction.
+
+![[IMG_0345.jpeg]]
