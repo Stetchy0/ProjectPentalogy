@@ -2,6 +2,10 @@
 tags:
   - close-earth
   - closer-earth
+aliases:
+  - Team Hope
+  - Hope gang
+  - Good Guys
 ---
 The team of [[Closer Earth]] teenagers assembled by [[Chrys|Chrysanthemum]] once he realizes contact with humans from farther earth gives abilities unique to the individual. 
 
