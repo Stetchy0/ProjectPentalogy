@@ -21,4 +21,4 @@ Her power is speed to compensate for her “slowness” and her struggle to proc
 
 Aiko is the one who ends beheading [[Antoinette]] in order to save Loki.
 
-![[IMG_6114.jpeg]]
+![[Aiko 6.jpeg]]
