@@ -6,4 +6,4 @@ Element: Water
 
 Her ability is healing to compensate for the physical self-harm she copes with.
 
-![[IMG_6167.jpeg]]
+![[Emira 11.jpeg]]
