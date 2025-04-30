@@ -15,4 +15,6 @@ Six years after the beheading of [[Antoinette]], all members of [[Project Hope E
 
 The new leader, a kid named [[Kieran]], felt an extreme curiosity regarding the powers of Team Hope— specifically how [[Aiko]], a human, was able to harness enough power to kill Antoinette, who was half demon. With the help of [[Soren]], who had newly acquired illusion abilities, the new gen started planning how to effectively and quietly abduct Aiko Primavera. 
 
+Soren’s role in this is crucial because of how he practically dropped off the face of the earth after [[The Mariposa Scandal]].
+
 Aiko and [[Loki]] had been living together for two years now and were practically inseparable. 
