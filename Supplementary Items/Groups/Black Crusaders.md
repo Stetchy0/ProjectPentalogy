@@ -37,7 +37,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	
 	- "Sergeant Natz"
 	- second in line heir 
-	- staged [[Natz's Coup de Tat]] to gain power, instead of [[Amy]]
+	- staged [[Natz's Coup D'état]] to gain power, instead of [[Amy]]
 	- killed by his wife, [[Estelle]], after affair with [[Sierra]]. Lee and Vi take over swiftly.
 
 [[Lee]]
