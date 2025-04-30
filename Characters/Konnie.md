@@ -19,4 +19,4 @@ Element: Earth
 
 Her ability is telepathy, or reading the emotions of those she chooses. When mastered, it could be used to influence the emotions of another, but for now, it’s there to compensate for Konnie’s lack of empathy. She thinks this ability is lame.
 
-![[IMG_6168.png]]
+![[Konomi 1.png]]
