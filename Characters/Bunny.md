@@ -17,4 +17,4 @@ He earned his position partly because the general he looks up to, [[Fox]], put i
 
 He hates women because he’s gay. He’s happily dating [[Taka]], and he oversees the lower ranks.
 
-![[IMG_6415.jpeg]]
+![[Bunny 8.jpeg]]
