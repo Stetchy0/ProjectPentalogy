@@ -20,3 +20,5 @@ Element: Lightning
 Her power is speed to compensate for her “slowness” and her struggle to process information the same way other students do. (She canonically has ADHD)
 
 Aiko is the one who ends beheading [[Antoinette]] in order to save Loki.
+
+![[IMG_6114.jpeg]]
