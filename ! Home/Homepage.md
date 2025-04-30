@@ -9,7 +9,7 @@ https://www.tumblr.com/kozyeatspho
 
 Hopefully this will one day be fully realized, but in the meantime, it will be carefully planned and organized.
 
-The main characters are [[Connor]], [[Loki]], [[Aiko]], [[Leo]], [[Alex]], [[Moyo]], [[Chieko]], etc. In no particular order.
+The main characters are [[Connor]], [[Loki]], [[Aiko]], [[Lee|Leo]], [[Alex]], [[Moyo]], [[Chieko]], etc. In no particular order.
 
 Some interesting reads would be [[Black Crusaders]] and [[Anthracyllin]], for now.
 
