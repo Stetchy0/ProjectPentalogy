@@ -12,4 +12,6 @@ aliases:
 ---
 Persephone is the [[Singularity]]. 
 
+She takes up the name "Percy" to have a more normal sounding name in closer earth so she could find a job.
+
 Born Stalix Ivanov, she is [[Dami]]'s older sister.
