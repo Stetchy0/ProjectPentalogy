@@ -1,6 +1,9 @@
 ---
 aliases:
   - General Lupus
+  - Grayson
+  - Gray
+  - Lupus
 tags:
   - blackcrusader
   - crusader-general
@@ -14,4 +17,4 @@ General for the [[Black Crusaders]]. Although she is formally titled General Lup
 
 Green used to be friends with [[Loki]] until one of their activities led to [[Antoinette]] punishing her by forcing her to keep her eyes open. Now she resents Loki for getting her in trouble, and she feels like her reputation is tainted. 
 
-Despite being afraid of Antoinette, she harbors affection for her leader and despised that [[S|Seraphine]] is seemingly closest with the boss.
+Despite being afraid of Antoinette, she harbors affection for her leader and despises that [[S|Seraphine]] is seemingly closest with the boss.
