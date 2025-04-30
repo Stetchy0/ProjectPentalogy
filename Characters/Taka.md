@@ -11,4 +11,4 @@ tags:
 ---
 “Taka”, or Tyler, is one of the lower ranks of the [[Black Crusaders]] under [[Antoinette]]’s reign. His twin sister is [[Kira]] and he is happily dating [[Bunny]], who also happens to be his squad’s overseer. He’s also friends with [[Rat]] and [[Zero]], who are in his squad. 
 
-![[IMG_5785.png]]
+![[Taka.png]]
