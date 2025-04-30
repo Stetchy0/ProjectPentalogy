@@ -11,6 +11,8 @@ The Black Crusaders were an organization founded by Xerxes, better known as
 
 During Marx's reign, the public took to calling the crusaders "knights" because they often protected small towns and did jobs and bounties to gain the public's trust.
 
+During Kieran's reign, people in both [[Closer Earth|closer]] and [[Farther Earth|farther earth]] began referring to the group as the Black Death, because [[Conre]] invented a gaseous form of Anthracyllin, which, when deployed on humans, releases a black cloud that causes infectious boils to appear on the skin, very similar to the bubonic plague.
+
 HISTORY OF LEADERSHIP
 Throughout the metamorphoses of the organization, the leadership changed drastically in name, style, and of course, the people filling the position.
 
@@ -57,6 +59,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	- crosses dimensional barrier - [[Connor's Inventions]]
 	- killed in [[Project Hope Effect]]
 	- [[Rat]], [[Loki]], [[S]], [[Kira]], [[Taka]], [[Chrys]], [[Green]], [[Dami]], [[Bunny]], [[Fox]], [[Kiki]]
+	- [[Conre]] is born late in her reign, is taught how to speak et cetera..
 
 [[Kieran]] 
 
@@ -68,13 +71,13 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 	- ranks become very small
 	- only crusader monarch to actually work in the field while leading
 	- youngest leader - child prodigy
-	- [[Bee]], [[Zayne]], [[Soren]], [[Dami]]
+	- [[Bee]], [[Zayne]], [[Soren]], [[Dami]], [[Conre]]
 
 [[Dami]]
 
 	- referred to simply by name
 	- was put into power after Kieran's disappearance. 
-	- appoints no one; uses remaining 2 (Bee and Zayne) as task-doers for his own mission, they eventually abandon the crusaders after losing faith in his cause
+	- appoints no one; uses remaining 2 (Bee and Zayne) generals as task-doers for his own mission, they eventually abandon the crusaders after losing faith in his cause. [[Conre]] remains simply because of his curiosity towards Dami's evolution.
 	- also very young
 	- very irrational and powerful
 	- uses crusaders for his own agenda as he morphs into [[Mephisto]] 
