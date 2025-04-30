@@ -21,4 +21,4 @@ Element: Wind
 
 They have the power of extreme strength to compensate for their inability to fight their drug addiction.
 
-![[IMG_0345.jpeg]]
+![[Moyo 4.jpeg]]
