@@ -1,1 +1,0 @@
-Stalix is [[Persephone]]'s birthname.
