@@ -25,4 +25,4 @@ Soren’s role in this is crucial because of how he practically dropped off the 
 
 From Aiko’s phone, he tried to make it look like Aiko would break up with Loki. However, he felt sympathy for her, and allowed her to drop off a letter at the apartment that had Aiko’s belongings. Loki was persistent to keep communication, and feeling guilty, Soren used illusion magic to make it sound like Aiko was calling Loki.
 
-This leads to the opening situation of Trust, where Loki has been calling and chatting with a distant ex girlfriend, dropping off food at the so called apartment in a desperate attempt to reconnect. Moyo and Chieko believe Aiko’s refusal to see Loki in person is because their relationship is over, when in actuality it had been Soren using Aiko’s phone for the past 60 weeks. 
+This leads to the opening situation of Truth, where Loki has been calling and chatting with a distant ex girlfriend, dropping off food at the so called apartment in a desperate attempt to reconnect. Moyo and Chieko believe Aiko’s refusal to see Loki in person is because their relationship is over, when in actuality it had been Soren using Aiko’s phone for the past 60 weeks. 
