@@ -11,7 +11,7 @@ The Black Crusaders were an organization founded by Xerxes, better known as
 
 During Marx's reign, the public took to calling the crusaders "knights" because they often protected small towns and did jobs and bounties to gain the public's trust.
 
-During Kieran's reign, people in both [[Closer Earth|closer]] and [[Farther Earth|farther earth]] began referring to the group as the Black Death, because [[Conre]] invented a gaseous form of Anthracyllin, which, when deployed on humans, releases a black cloud that causes infectious boils to appear on the skin, very similar to the bubonic plague.
+During Kieran's reign, people in both [[! Closer Earth|closer]] and [[! Farther Earth|farther earth]] began referring to the group as the Black Death, because [[Conre]] invented a gaseous form of Anthracyllin, which, when deployed on humans, releases a black cloud that causes infectious boils to appear on the skin, very similar to the bubonic plague.
 
 HISTORY OF LEADERSHIP
 Throughout the metamorphoses of the organization, the leadership changed drastically in name, style, and of course, the people filling the position.
@@ -32,8 +32,8 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - following X's breakthrough with synthetic demon transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
 - made organization military
 - [[Connor]] creates refined [[Anthracyllin]]
-- [[Rei]], [[Connor]], [[Leo]], [[Vi]], [[Pherenix|Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
-- [[Pherenix]] briefly led the crusaders under Marx's direction and Marx would've appointed him to be leader, but the Coup de Tat prevented that from happening. Pherenix, now more stable and less manic, lost interest in the crusades and deserted to be with his lover, [[Ameille]].
+- [[Rei]], [[Connor]], [[Lee|Leo]], [[Vi]], [[Pherenix|Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
+- [[Pherenix]] briefly led the crusaders under Marx's direction and Marx would've appointed him to be leader, but [[Natz's Coup D'état|The Coup]] prevented that from happening. Pherenix, now more stable and less manic, lost interest in the crusades and deserted to be with his lover, [[Ameille]].
 			
 [[Natz]] 
 	
@@ -46,7 +46,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 
 - "Sergeant Lee"
 - Puppet leader - [[Vi]]
-- steady mental decline - crusaders lose power and authority over people
+- steady mental decline - crusaders begin to lose power and authority over people
 - abrupt end to reign - [[Sanctuary]]
 
 [[Antoinette]]
