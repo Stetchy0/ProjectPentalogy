@@ -12,7 +12,7 @@ tags:
   - farther-earth
   - far-earth
 ---
-Connor's #syntheticdemon is a snake, whom he overpowers in his mind and takes its abilities as his own. He is one of very few who have overcome their [[Synthetic Demon]].
+Connor's #syntheticdemon is a snake, whom he overpowers in his mind and takes its abilities as his own. He is one of very few who have overcome their [[Synthetic Demon]]. He was born in [[! Farther Earth|farther earth]].
 
 Connor Smith, originally born Carter Smith, is one of many of the [[Black Crusaders]]'s experiments, and arguably one of their most successful despite being one of the main factors leading to the organization's downfall.
 
