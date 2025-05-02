@@ -11,4 +11,4 @@ tags:
   - gay
   - scientist
 ---
-Conre is a clone of [[Connor]].
+Conre is a clone of [[Connor]]. He was born in [[! Farther Earth|farther earth]].
