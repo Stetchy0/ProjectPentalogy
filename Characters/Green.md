@@ -11,7 +11,7 @@ tags:
   - farther-earth
   - gay
 ---
-General for the [[Black Crusaders]]. Although she is formally titled General Lupus, Grayson is typically referred to as “Green” by other characters due to her hair and wardrobe pallet. 
+General for the [[Black Crusaders]]. Although she is formally titled General Lupus, Grayson is typically referred to as “Green” by other characters due to her hair and wardrobe pallet. She was born in [[! Farther Earth|farther earth]].
 
 [[Lavender|Lavender Harse]] nominated her to be his successor should something happen to him, thrusting her into the position of an interim general after his death.
 
