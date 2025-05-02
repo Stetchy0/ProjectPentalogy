@@ -9,7 +9,7 @@ tags:
   - far-earth
   - farther-earth
 ---
-Marx was born just a few months after [[Natz]] from a different mother, who he would never meet. They were given to the Black Crusaders as teenagers because their father thought they would be valuable assets and supported the crusaders. He was correct. The brothers would never see him again.
+Marx was born just a few months after [[Natz]] from a different mother, who he would never meet. He was born in [[! Farther Earth|farther earth]]. They were given to the Black Crusaders as teenagers because their father thought they would be valuable assets and supported the crusaders. He was correct. The brothers would never see him again.
 
 He would quickly be recognized as a crazed strategist, rising in the ranks swiftly. On kidnapping missions, he would brutally punish any resistance with extravagant flames. He would burn their loved ones, their homes, their food, etc. This would earn him the nickname, "Firestarter," from locals hearing about his horrendous achievements.
 
