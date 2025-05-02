@@ -7,7 +7,7 @@ tags:
   - gay
   - human
 ---
-Aiko is [[Loki]]'s girlfriend and the main protagonist of Project: Hope Effect.
+Aiko is [[Loki]]'s girlfriend and the main protagonist of Project: Hope Effect. She was born in [[! Closer Earth|closer earth]].
 
 She is the last human [[Chrys]] gives abilities to, approached unexpectedly when the rest of team [[Project Hope Effect]] struggles to fight and apprehend Loki. Ironically, it is her eventual secret friendship with Loki that slowly sparks the downfall of [[Antoinette]].
 
