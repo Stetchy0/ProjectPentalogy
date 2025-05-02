@@ -6,7 +6,7 @@ tags:
   - far-earth
   - farther-earth
 ---
-Natz, even though he is the older sibling, has always lived in his brother's shadow. He was always jealous of him, but [[Marx]]'s overwhelming success in the Black Crusaders really ramped up his jealousy until it turned into hatred. He hated that he used magic, and when Marx stpped using magic as often, he hated that he didn't stick to his core values. Natz thought that Marx was an overthinking fool, and in some ways, he was right. Natz would remain below him until he murders Marx to take his place as leader of the [[Black Crusaders]], however, he wouldnt reign for more than a few days.
+Natz, even though he is the older sibling, has always lived in his brother's shadow. He was born in [[! Farther Earth|farther earth]]. He was always jealous of him, but [[Marx]]'s overwhelming success in the Black Crusaders really ramped up his jealousy until it turned into hatred. He hated that he used magic, and when Marx stpped using magic as often, he hated that he didn't stick to his core values. Natz thought that Marx was an overthinking fool, and in some ways, he was right. Natz would remain below him until he murders Marx to take his place as leader of the [[Black Crusaders]], however, he wouldnt reign for more than a few days.
 
 Natz is a woman's man. If ever he had a weakness, it was the ladies. His ways have gotten him and his mates in trouble plenty of times, however, _his_ woman, [[Estelle]], put him into place. Natz married her only a month after they met and Estelle became an important piece of the crusaders' experimental memory treatment program; They needed a talented manipulator, and she was just that.
 
