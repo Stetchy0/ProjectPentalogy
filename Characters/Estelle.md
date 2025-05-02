@@ -1,0 +1,1 @@
+She was born in [[! Farther Earth|farther earth]].
