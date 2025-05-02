@@ -6,3 +6,5 @@ tags:
   - pre-story
 ---
 ![[Emilio Baines.png]]
+
+He was born in [[! Farther Earth|farther earth]].
