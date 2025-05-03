@@ -17,7 +17,7 @@ He was born in [[! Farther Earth|farther earth]].
 
 After [[Natz's Coup D'état]], he is drastically and permanently changed.
 
-Lee is the name that [[Vi]] bestows upon [[Leo]]. It becomes his "new personality." Leo associates the name with his new self and the man in love with Vi, the bad side of him, and Leo is the good side, basically. Lee is, for a very brief time, the Leader of the Black Crusaders, as Vi's puppet.
+Lee is the name that [[Vi]] bestows upon Leo. It becomes his "new personality," in Vi's eyes, but in reality, Leo had surrendered to his [[Synthetic Demon]]. Leo associates the name with his new self and the man in love with Vi, the bad side of him, and Leo is the good side, basically. Lee is, for a very brief time, the Leader of the Black Crusaders, as Vi's puppet.
 
 Lee is the fully realized form of the synthetic demon that was injected into Leo during his initial kidnapping. After undergoing extreme stress that nearly drove him mad (see [[Natz's Coup D'état]]), his demon took complete control because Leo gave up. He lost his hope for escape, as well as his best friends, all in one day. 
 
