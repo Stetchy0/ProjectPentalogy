@@ -16,7 +16,7 @@ Part IV - 2019
 
 [[The Mariposa Scandal]] happens years prior, leading to [[Soren]]’s involvement in [[Aiko's Disappearance]] and the creation of [[Jaylo]].
 
-[[Project Hope Effect|Team Hope]], led by Loki now, search for Aiko after finding proof in Aiko’s apartment that she is missing.
+[[Project Hope Effect|Team Hope]], led by [[Loki Primavera]] now, search for Aiko after finding proof in Aiko’s apartment that she is missing.
 
 Part V - 2020
 
