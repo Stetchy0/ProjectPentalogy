@@ -19,4 +19,4 @@ When the two get closer, she decides she wants to try to talk to the other ranks
 
 She is terrified of [[Bunny]] because he once kidnapped and threatened to kill a kitten she took in. 
 
-There is tension between Seraphine  and [[Green]], as she has no idea Green is in love with Antoinette until she is cheated on.
+There is tension between Seraphine and [[Green]], as she has no idea Green is in love with Antoinette until she is cheated on.
