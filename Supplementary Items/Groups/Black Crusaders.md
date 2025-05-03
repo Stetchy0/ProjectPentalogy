@@ -80,5 +80,5 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - appoints no one; uses remaining 2 (Bee and Zayne) generals as task-doers for his own mission, they eventually abandon the crusaders after losing faith in his cause. [[Conre]] remains simply because of his curiosity towards Dami's evolution.
 - also very young
 - very irrational and powerful
-- uses crusaders for his own agenda as he morphs into [[Mephisto]] 
+- uses crusaders for his own agenda as he morphs into [[Dami|Mephisto]] 
 - his defeat ends the crusaders.
