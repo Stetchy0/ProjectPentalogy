@@ -3,4 +3,4 @@ She was murdered by Natz's wife, [[Estelle]], along with Natz, for his cheating.
 
 She was a demon hunter for the [[Black Crusaders]], and she kept tabs and hunted [[Brook]] for research purposes during the mutant phase of crusader research.
 
-She was born in [[! Farther Earth|farther earth]].
+She was born in [[Farther Earth|farther earth]].
