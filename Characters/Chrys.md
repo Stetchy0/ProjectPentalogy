@@ -11,7 +11,7 @@ tags:
   - crusader-general
   - farther-earth
 ---
-Enemy and fugitive of the [[Black Crusaders]]. He was born in [[Farther Earth|farther earth]].
+Enemy and fugitive of the [[Black Crusaders]]. He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part 0.11 - Desertion]].
 
 Chrysanthemum Corday has attributes of a deer to his encounter with a  [[synthetic demon]], hence the antlers on his head and the tuffs of hair that appear to look like ears. He is one of the only individuals to outsmart and overpower his injected demon, the only other individual being [[Connor]].
 
