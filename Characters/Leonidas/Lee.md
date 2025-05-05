@@ -19,5 +19,7 @@ Vi was the only person who would ever keep him company. She took advantage of hi
 
 After the events of [[Natz's Coup D'état]], Vi took the opportunity to promote Lee to sergeant, to get him off the hook, as well as taking power for herself, since Lee was completely submitted to her every whim. She achieved this by taking advantage of her being the only one knowing Lee was actually alive, and his drastically changed appearance, as well as the recent scientific advancement within the crusaders, to bring him forward as "a [[clones|clone]]" of Natz, who was more suited to lead the crusaders than the person next in line, [[Antoinette]], since she was quite young at the time. Because of his violent nature, his devotion to Vi, and his manic outbursts, it didn't take much to convince the crusaders that he was a secret Natz clone. Lee would apprentice Antoinette, and she would learn a lot from him and Vi during their reign.
 
+Lee comes into existence in [[Part II - Sanctuary]].
+
 
 ![[Lee.jpg]]![[Image Gallery/Art/Art by Stetchy0/Lee.png]]![[Lee (I'm yours).png]]![[Lee 1.jpg]]![[Image Gallery/Art/Art by Stetchy0/Lee 2.png]]![[Lee-1.jpg]]![[Lee, Dami, Connor.jpg]]![[Lee(myhusband).png]]
