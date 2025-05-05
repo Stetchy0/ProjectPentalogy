@@ -17,6 +17,6 @@ With Antoinette being pretty absent and distant for most of [[Loki]]’s early c
 General [[Fox]] is the only one she feels safe confiding in, for the panic attack she witnessed humanized him to her.
 When the two get closer, she decides she wants to try to talk to the other ranks and prove that she is more than the sadistic idea they have of her. 
 
-She is terrified of [[Bunny]] because he once kidnapped and threatened to kill a kitten she took in. 
+She is terrified of [[Bunny]] because he once stole and threatened to kill a kitten she took in. 
 
 There is tension between Seraphine and [[Green]], as she has no idea Green is in love with Antoinette until she is cheated on.
