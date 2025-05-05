@@ -11,9 +11,9 @@ aliases:
 ---
 [[Aiko]]'s girlfriend (chaos ensues)
 
-[[Persephone]]'s childhood friend and lifetime companion
+[[Persephone]]'s childhood friend and lifetime companion.
 
-An outgoing and chaotic arsonist who starts as a villain, and becomes a friend and loved one of those she was supposed to fight against, [[Project Hope Effect]].
+An outgoing and chaotic arsonist who starts as a villain, and becomes a friend and loved one of those she was supposed to fight against, [[Project Hope Effect]]. She is introduced in [[Part III - Hope]].
 
 She was born in [[Farther Earth|farther earth]].
 
