@@ -4,4 +4,4 @@ tags:
   - farther-earth
   - pre-story
 ---
-![[Pasted image 20250505172002.png]]
+![[Faust 1.png]]
