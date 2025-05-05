@@ -11,7 +11,7 @@ The Black Crusaders were an organization founded by Xerxes, better known as
 
 During Marx's reign, the public took to calling the crusaders "knights" because they often protected small towns and did jobs and bounties to gain the public's trust.
 
-During Kieran's reign, people in both [[! Closer Earth|closer]] and [[! Farther Earth|farther earth]] began referring to the group as the Black Death, because [[Conre]] invented a gaseous form of Anthracyllin, which, when deployed on humans, releases a black cloud that causes infectious boils to appear on the skin, very similar to the bubonic plague.
+During Kieran's reign, people in both [[Closer Earth|closer]] and [[Farther Earth|farther earth]] began referring to the group as the Black Death, because [[Conre]] invented a gaseous form of Anthracyllin, which, when deployed on humans, releases a black cloud that causes infectious boils to appear on the skin, very similar to the bubonic plague.
 
 HISTORY OF LEADERSHIP
 Throughout the metamorphoses of the organization, the leadership changed drastically in name, style, and of course, the people filling the position.
