@@ -10,6 +10,8 @@ aliases:
   - Percy
   - Miss Mischief (briefly)
 ---
+[[Part 0.8 - Singularity]]
+
 Persephone is the [[Singularity]]. 
 
 She takes up the name "Percy" to have a more normal sounding name in closer earth so she could find a job.
