@@ -12,4 +12,4 @@ tags:
   - syntheticdemon
   - Part-I-Experience
 ---
-Jace is [[Azazel]]'s host. He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part I - Experience]].
+Jace is [[Azazel]]'s host. He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part I - Chapter One]].
