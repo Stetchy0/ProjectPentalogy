@@ -1,1 +1,1 @@
-He was born in [[! Farther Earth|farther earth]].
+He was born in [[Farther Earth|farther earth]].
