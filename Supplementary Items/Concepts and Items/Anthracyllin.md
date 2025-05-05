@@ -1,8 +1,0 @@
-Anthracyllin, commonly referred to as [[Darkium]] by the Black Crusaders to hide its source, is a series of invented substances, usually in concentrated liquid form, that is designed to enhance specifically demonic abilities. It is very addictive to demons, but is extremely toxic to humans and angels.
-
-The [[Anthralily]] from which anthracyllin's abilities are derived from was a common known toxin to humans, and a well known strength enhancing herb among demons, which would be smoked like tobacco or sipped like tea. However, in its crude and undeveloped form, it is nothing compared to the many breakthroughs that the Black Crusaders make to enhance demonic ability and poison/ torture humans efficiently.
-
-The greatest version of Anthracyllin was created by [[Connor]]. He invented the most pure extraction and chemical enhancing method for Anthracyllin creation. It is so potent that it is corrosive to human and part demon skin. He found other demon-enhancing supplements, herbs, and substances, and combined many consumption methods. He would very soon regret this formula's creation and seek to destroy his research, however, he would be unsuccessful as he had to abruptly flee during [[Natz]]'s Coup de Tat.
-
-His highly sought after formula would not be discovered until young [[Dami]], under [[Antoinette]]'s reign, would find the file with [[Dami|Mephisto]]'s guidance and bring it to her.
-
