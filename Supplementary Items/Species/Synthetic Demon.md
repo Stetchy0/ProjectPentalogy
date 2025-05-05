@@ -4,6 +4,8 @@ Unbeknownst to the Crusaders, not only did they create injectable abilities, the
 
 This is not always the case though, as each synthetic demon is distinct. For example, [[Soren]]'s demon, a butterfly, is extremely weak, and its abilities are completely non-physical. It manifests itself *within* Soren as an attachment to butterflies, rather than completely overthrowing him, like the fox demon within [[Lee]].
 
+Vi is the only one to receive a true synthetic demon, as her demon was derived from her brother. She was the first, and most powerful, successful synthesis. However, she does not have any flashy abilities like the others. She was given eternal youth and rapid healing by the transfusion, which is handy but, in X's eyes, not useful enough. The specific and risky methods required to create one like Vi's is what inspired the use of animals in demon synthetization, which proved much more successful.
+
 Another anomalous reaction to the injected demon would not only be overpowering it, but noticing it as an intruder and killing it. This can only be done by excessively intelligent individuals, like [[Connor]] and [[Chrys|Chrysanthemum]], the only two people who accomplished this feat.
 
 One more interesting find with the injected demons is what occurs when they are added to dead bodies. Bodies no longer inhabited. The only three successful injections of this type are [[Cat]], [[Birde]], and [[Zeph]]. They are very strange in character and are completely without any memory of whoever inhabited their bodies before them. They give off uncanny valley effect to everyone around them, because they physically do not understand how to be people, and are eventually completely alienated because of this.
