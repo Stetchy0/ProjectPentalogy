@@ -7,7 +7,7 @@ tags:
   - closer-earth
   - human
 ---
-Konnie Ellis is what you’d call a confusing case. As a student, she’s sweet, amiable, and extroverted. But as a hero, she’s straight up snarky, rude, arrogant, and overall acts more like a diva. She is friendly with [[Emira]] and [[Amber|Amy]], but makes jabs at [[Aiko]], [[Moyo]], and [[Loki]]. She was born in [[! Closer Earth|closer earth]].
+Konnie Ellis is what you’d call a confusing case. As a student, she’s sweet, amiable, and extroverted. But as a hero, she’s straight up snarky, rude, arrogant, and overall acts more like a diva. She is friendly with [[Emira]] and [[Amber|Amy]], but makes jabs at [[Aiko]], [[Moyo]], and [[Loki]]. She was born in [[Closer Earth|closer earth]].
 
 Konnie is especially harsh on Aiko because Aiko seemingly wants to disobey [[Chrys]]. Konnie is the only one who’s encountered a genuinely malicious crusader - [[Bunny]] - stalking her and following her home. Chrys had promised to help get to the bottom of her issue, and he feels she’s the only one who gets how serious this could be.
 
