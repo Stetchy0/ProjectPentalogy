@@ -8,7 +8,7 @@ tags:
   - gay
   - demon
 ---
-Zayne was found by [[Kieran]] in [[Siverial]] while he was scouting. They were pickpocketing people with ease and living off of scraps. Kieran could sense they had significant abilities, and he was correct. They were born in [[Farther Earth|farther earth]].
+Zayne was found by [[Kieran]] in [[Siverial]] while he was scouting. They were pickpocketing people with ease and living off of scraps. Kieran could sense they had significant abilities, and he was correct. They were born in [[Farther Earth|farther earth]]. They were introduced in [[Part IV - Truth]].
 
 Zayne has the ability to hear certain thoughts. They can look into other people's minds, however, it is a very, very difficult and draining task to perform. He offered them a home and food in exchange for research on their amazing and unique ability, and eventually reconnaissance work. Zayne happily agreed, and became a Black Crusader, simply for the fun of it.
 
