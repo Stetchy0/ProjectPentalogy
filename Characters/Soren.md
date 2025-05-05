@@ -14,7 +14,7 @@ tags:
   - close-earth
   - closer-earth
 ---
-Serana Mariposa is the child of popular actress and model, [[Vanessa|Vanessa Mariposa]]. He was born as a male, but his mother wanted a daughter, so she raised Serana as a girl. He was born in [[Closer Earth|closer earth]].
+Serana Mariposa is the child of popular actress and model, [[Vanessa|Vanessa Mariposa]]. He was born as a male, but his mother wanted a daughter, so she raised Serana as a girl. He was born in [[Closer Earth|closer earth]]. He was introduced in [[Part IV - Truth]].
 
 As Serana aged, he became very aware that he wasn't like other girls his age and never fit in. He figured out the "Vitamins" his mother made him take every day were actually female hormones. When he finally gathered up the courage to ask his mother why he had to pretend to be a girl, he was met with rage and physical violence.
 
