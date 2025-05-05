@@ -9,7 +9,7 @@ tags:
 ---
 Moyo is [[Chieko|Chi]]'s partner. They/them
 
-They were born in [[! Closer Earth|closer earth]].
+They were born in [[Closer Earth|closer earth]].
 
 Moyo is a non-binary student who was severely bullied for coming out, and unfortunately kicked out by their conservative parents. They live in their brother’s apartment, and work in the city to help pay rent. 
 
