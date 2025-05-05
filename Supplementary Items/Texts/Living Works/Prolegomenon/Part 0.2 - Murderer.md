@@ -4,7 +4,7 @@ tags:
   - farther-earth
   - pre-story
 ---
-![[Pasted image 20250505172329.png]]"I am humanity's salvation"
+![[Emilio.png]]"I am humanity's salvation"
 
 The war continues despite humans. Filthy, sinful, and useless, powerless humans. I must distract them. And punish them for interfering in matters that are above humans. I will show them they have no power in this fight. I will show them just how powerless they are. I'm the only one of them that can *see*. 
 
