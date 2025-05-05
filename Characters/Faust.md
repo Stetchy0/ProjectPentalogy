@@ -9,3 +9,5 @@ tags:
   - farther-earth
 ---
 [[Part 0.3 - Tribute]] 
+
+Faust was [[Mephisto]]'s chosen mentor for [[Dami]].
