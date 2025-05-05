@@ -14,7 +14,7 @@ Her favorite animals are ducks, and she always has some form of yellow on her. S
 
 She is constantly checking in on friends and acquaintances because she wants to be what people like her late sister, [[Hina]], never got to have. 
 
-She was born in [[! Closer Earth|closer earth]].
+She was born in [[Closer Earth|closer earth]].
 
 Element: Light
 
