@@ -1,0 +1,1 @@
+Darkium is the common name for the injection [[Anthracyllin]]. It was given this name so that no one, during the reign of the [[Black Crusaders]], would make the connection that this substance was derived from the common wildflower, the [[Anthralily]].
