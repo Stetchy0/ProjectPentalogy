@@ -1,4 +1,4 @@
-Jaylo is the name that [[Alex]] gives to [[Aiko]] when he finds and adopts her.
+Jaylo is the name that [[Alex]] gives to [[Aiko]] when he finds and adopts her. She is introduced in [[Part IV - Truth]].
 
 After being abducted by [[Kieran]], [[Soren]], and the other [[Black Crusaders]], Aiko loses all memories of who she was due to the severe and traumatic experiments she was put through. 
 
