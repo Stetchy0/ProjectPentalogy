@@ -16,9 +16,9 @@ tags:
   - gay
   - Part-IV-Truth
 ---
-Bee is [[Zayne]]'s girlfriend and a general in the [[Black Crusaders]] during [[Kieran]] and [[Dami]]'s reign. She was born in [[! Farther Earth|farther earth]].
+Bee is [[Zayne]]'s girlfriend and a general in the [[Black Crusaders]] during [[Kieran]] and [[Dami]]'s reign. She was born in [[Farther Earth|farther earth]].
 
-Elizabeth Berry, or Bee for short, was a farm girl from [[! Farther Earth]]. Her mother had left her at a young age to start a different family because Beth was a crazy and weird child. Beth's father hates her for this, and even more so because Bee looks exactly like her mother. She was very energetic and lively, but she was also clumsy, and unwanted around the farm because of her loud, goofy nature.
+Elizabeth Berry, or Bee for short, was a farm girl from [[Farther Earth]]. Her mother had left her at a young age to start a different family because Beth was a crazy and weird child. Beth's father hates her for this, and even more so because Bee looks exactly like her mother. She was very energetic and lively, but she was also clumsy, and unwanted around the farm because of her loud, goofy nature.
 
 Unfortunately, her father became increasingly bitter towards her. Eventually, as he descended into alcoholism, he started to mistake Beth for her mother, and started making hostile and sexual advances. I think you know where this is going.
 
