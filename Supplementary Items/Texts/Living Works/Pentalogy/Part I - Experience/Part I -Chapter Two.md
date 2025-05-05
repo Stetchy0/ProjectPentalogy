@@ -8,7 +8,11 @@ When he made it up the hill and to their door, he was about to knock, but he not
 
 Leonidas froze and dropped the baskets he was holding. Carter was staring at Leo from across the room, it looked like he was tied up. He kept gesturing him to leave with wide and shocked eyes. Leo went over to him silently and began to untie him from the table as a glimmer from the candlelight revealed one of his parent’s lifeless hands on the floor, detached from their body. Leo froze and started to panic.
 
-Carter stared at the horror in his friend’s eyes. He wished his mouth wasn’t bound so he would listen to him! He thought, maybe, if he concentrated on the message enough, just maybe it would get through to him. _Get out of here before they find you and take you too! Escape! Run! Please?_
+Carter stared at the horror in his friend’s eyes. He wished his mouth wasn’t bound so he would listen to him! He thought, maybe, if he concentrated on the message enough, just maybe it would get through to him. 
+
+_Get out of here before they find you and take you too! Escape! Run! 
+
+_Please?_
 
 It was no use. Carter didn’t know any magic at all. It was pointless. Leo was just stuck, panicking and trying to calculate his next move.
 
@@ -20,7 +24,7 @@ Carter started to tear up. He was such a fool. He closed his eyes tightly as one
 
 Leo screamed in terror and was about to run, but the man grabbed his leg. “I’m sorry kid, but I can’t have you running off and telling everyone what you’ve seen here.”
 
-Leo began to beg, “I-I won’t tell a-anyone, I don’t even know who you are!”
+Leo began to beg, “I-I won’t tell a-anyone, I don’t even know who you are! I s-swear!”
 
 “I know you talk too much and don’t mind your own business. I saw you in the blacksmith’s shop earlier.”
 
@@ -78,9 +82,9 @@ Carter took a few breaths, "Fine. What do you want from me?"
 
 "...It's your turn to ask a question."
 
-Carter scoffed "Why are you being nice to me now?"
+Carter scoffed "Why are you being so nice to me now?"
 
-"Well, we are going to be working together now, and besides, its more fun this way. This is a long trip. Ask whatever question. I don't care. You'll forget this anyway."
+"Well, we are going to be working together now, and besides, its more fun this way. This is a long trip. Ask whatever questions you want. I don't care. You'll forget this anyway."
 
 "Was my father right about you knights? Do you and your 'knights' feign good intentions? Just to get us vulnerable?"
 
