@@ -1,1 +1,1 @@
-She was born in [[Farther Earth|farther earth]].
+She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part 0.7 - Devil]].
