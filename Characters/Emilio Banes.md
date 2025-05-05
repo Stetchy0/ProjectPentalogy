@@ -7,4 +7,4 @@ tags:
 ---
 ![[Emilio Baines.png]]
 
-He was born in [[! Farther Earth|farther earth]].
+He was born in [[Farther Earth|farther earth]].
