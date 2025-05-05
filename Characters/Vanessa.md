@@ -8,7 +8,7 @@ tags:
   - human
   - Part-IV-Truth
 ---
-Vanessa Mariposa was a very important figure in metropolitan culture in closer earth. She was known for her many movie appearances, her scandalous relationships, and was often regarded as a big figure in feminism, due to her womanly flair and proud independence from men. She was often regarded as an extremist on her views towards men. She was born in [[Closer Earth|closer earth]].
+Vanessa Mariposa was a very important figure in metropolitan culture in closer earth. She was known for her many movie appearances, her scandalous relationships, and was often regarded as a big figure in feminism, due to her womanly flair and proud independence from men. She was often regarded as an extremist on her views towards men. She was born in [[Closer Earth|closer earth]]. She was introduced in [[Part IV - Truth]].
 
 When Vanessa became pregnant through IVF, she pushed the idea that men were all evil and she could raise a child on her own. She chose the child to be a girl with IVF, however, this did not succeed. After 9 months, she gave birth to a boy, and initially thought the doctors were wrong, and named him [[Soren|Serana]]. Soon after, she figured out that her chosen gender IVF pregnancy did in fact fail, but kept raising him as a girl anyway. When Serana was about 6 years of age, she began using hormone replacement therapy to ensure he would stay feminine looking.
 
