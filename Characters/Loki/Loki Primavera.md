@@ -12,7 +12,7 @@ tags:
 ---
 Post hope effect - Loki has abandoned her mother’s name, taken on the last name of her girlfriend, [[Aiko]].
 
-Six years after the defeat of [[Antoinette]], Loki is living her best life. Or, the best that she could have. Given that she was born in [[! Farther Earth]], she still is getting accustomed to being a full-time [[! Closer Earth]] citizen.
+Six years after the defeat of [[Antoinette]], Loki is living her best life. Or, the best that she could have. Given that she was born in [[Farther Earth]], she still is getting accustomed to being a full-time [[Closer Earth]] citizen.
 
 In other words: getting a job. 
 
