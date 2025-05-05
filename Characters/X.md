@@ -73,4 +73,4 @@ X would lead the crusaders and his impact on the world would be felt far and wid
 | Weapons                 | he likes to challenge himself to only use whatever is immediately available, such as a pan or branch, to belittle humans even more when they fail to defeat him with elaborate weapons or elemental magic.            |
 | Skills                  | He is almost always training his magic and body. He is very atheletic and dextrous, and will outmaneuver anyone in a fight.                                                                                           |
 | Abilities               | His magic is basically 100 or nothing because of its sheer chaotic force. His magic is nothing in particular, but when he resorts to using it, whatever form it decides to take, it is immensely powerful and deadly. |
-He was born in [[Farther Earth|farther earth]].
+He was born in [[Farther Earth|farther earth]]. He was mentioned in [[Part 0.1 - Twisted]], but was formally introduced in [[Part 0.4 - Prestige]].
