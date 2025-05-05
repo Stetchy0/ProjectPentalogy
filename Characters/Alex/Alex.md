@@ -1,4 +1,11 @@
-Alex is a barkeep who would eventually adopt Aiko after she loses her memories. He would rename her Jaylo, as she had no name at the time. He would eventually become the aspect of balance, [[Abaddon]]. He was born in [[Farther Earth|farther earth]].
+---
+aliases:
+  - Alexei
+  - Al Ek-che
+  - Barkeep
+  - Siverial's best bartender
+---
+Alex is a [[Alex's Bar|barkeep]] who would eventually adopt Aiko after she loses her memories. He would rename her [[Jaylo]], as she had no name at the time. He would eventually become the aspect of balance, [[Abaddon]]. He was born in [[Farther Earth|farther earth]]. He is introduced in [[Part 0.2 - Murderer]].
 
 He also, a long time ago, adopted [[Len]], after finding her abandoned in hell as an infant.
 
