@@ -16,8 +16,6 @@ She is constantly checking in on friends and acquaintances because she wants to 
 
 She was born in [[! Closer Earth|closer earth]].
 
-
-
 Element: Light
 
 She has the power of invisibility. This serves as a contrast to her nature of constantly being there for other people. It’s to “compensate” for her vibrancy, though her power is the only one that doesn’t serve as an escape from a “deficit”.
