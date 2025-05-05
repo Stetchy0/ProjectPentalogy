@@ -11,7 +11,7 @@ tags:
 ---
 #syntheticdemon
 
-Noah, or General Bunny of the [[Black Crusaders]], contains the synthetic demon of a rabbit. As the youngest and newest general, he is notoriously rude, sadistic, violent, and a raging misogynist. He was born in [[! Farther Earth|farther earth]].
+Noah, or General Bunny of the [[Black Crusaders]], contains the synthetic demon of a rabbit. As the youngest and newest general, he is notoriously rude, sadistic, violent, and a raging misogynist. He was born in [[Farther Earth|farther earth]].
 
 He earned his position partly because the general he looks up to, [[Fox]], put in a good word for him.
 
