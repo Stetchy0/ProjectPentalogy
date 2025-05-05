@@ -47,7 +47,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - "Sergeant Lee"
 - Puppet leader - [[Vi]]
 - steady mental decline - crusaders begin to lose power and authority over people
-- abrupt end to reign - [[Sanctuary]]
+- abrupt end to reign - [[Part II - Sanctuary]]
 
 [[Antoinette]]
 
