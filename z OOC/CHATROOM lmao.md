@@ -7,3 +7,5 @@ YIPPEE
 YEYEYYEVs
 
 Hey look at [[Loki Primavera]] :))
+
+I LOVE MUCKRAKER LOKI SM I NEED TO DRAW HER WITH A FLAT CAP!!! 
