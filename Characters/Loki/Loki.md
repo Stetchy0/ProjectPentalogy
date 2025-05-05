@@ -15,7 +15,7 @@ aliases:
 
 An outgoing and chaotic arsonist who starts as a villain, and becomes a friend and loved one of those she was supposed to fight against, [[Project Hope Effect]].
 
-She was born in [[! Farther Earth|farther earth]].
+She was born in [[Farther Earth|farther earth]].
 
 Born as a boy, distantly raised by [[Antoinette]], and originally intended to be her heir to the [[Black Crusaders]]. This plan gets complicated once Loki realizes she’s trans, and asks [[Green]] to dye her hair pink. This causes Antoinette to have a tweakfest, trying to dismantle the idea that Logan Ivanov could ever be a girl.
 
