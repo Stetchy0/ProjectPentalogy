@@ -56,7 +56,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - major changes to how the crusaders work
 - many more apointees, generals, etc.
 - Crusaders become powerful again
-- crosses dimensional barrier - [[Connor's Inventions]]
+- crosses dimensional barrier - [[Connor's Formula]]
 - killed in [[Project Hope Effect]]
 - [[Rat]], [[Loki]], [[S]], [[Kira]], [[Taka]], [[Chrys]], [[Green]], [[Dami]], [[Bunny]], [[Fox]], [[Kiki]]
 - [[Conre]] is born late in her reign, is taught how to speak et cetera..
