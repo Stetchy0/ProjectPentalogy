@@ -11,7 +11,9 @@ Hopefully this will one day be fully realized, but in the meantime, it will be c
 
 The main characters are [[Connor]], [[Loki]], [[Aiko]], [[Lee|Leo]], [[Alex]], [[Moyo]], [[Chieko]], etc. In no particular order.
 
-Some interesting reads would be [[Black Crusaders]] and [[Anthracyllin]], for now.
+Featured Pages: 
+[[Kidnapped]]
+[[Aiko’s Goodbye]]
 
 This site (obsidian vault) is BRAND NEW, so many pages are very, very blank. Apologies, we are working on it!
 
