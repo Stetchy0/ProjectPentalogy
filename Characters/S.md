@@ -10,7 +10,7 @@ tags:
 ---
 S is [[Antoinette]]'s girlfriend and a victim to constant abuse. She was the first appointed general due to Antoinette being attracted to her, and she was told that others would kill her if they knew about their relationship. She is deeply distrustful toward the other [[Black Crusaders]] and has a reputation of lashing out and being cruel. 
 
-She was born in [[! Farther Earth|farther earth]].
+She was born in [[Farther Earth|farther earth]].
 
 With Antoinette being pretty absent and distant for most of [[Loki]]’s early childhood, Seraphine took on the role of helping raise her and read bed time stories to her. One of those stories was Romeo and Juliet.
 
