@@ -1,1 +1,1 @@
-He was born in [[Farther Earth|farther earth]].
+He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part 0.4 - Prestige]].
