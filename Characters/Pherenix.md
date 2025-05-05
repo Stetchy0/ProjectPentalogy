@@ -22,4 +22,4 @@ He shares a body with his demon, Pheren. They would eventually earn the nickname
 
 Pheren is the [[synthetic demon]] that is injected into Felix's body, and would be the only synthetic demon to ever truly co-inhabit a body, rather than completely taking it over and manipulating the user or being killed by the user. This is because of Felix's Narcolepsy -- he had better control of his mind and dream state than anyone else and could directly communicate with Pheren. (This is the why Pheren is the oly demon in which we know his name). No other synthetic demon transplant has or ever will be able to accomplish this perfect symbiosis. [[Jace|Jazazel]]'s symbiosis could be considered similar, however, [[Azazel]] was able to manifest himself in the physical world using illusion based abilities, and took advantage of Jace's timid personality to control everything they did, so their symbiosis was very imperfect.
 
-He was born in [[! Farther Earth|farther earth]].
+He was born in [[Farther Earth|farther earth]].
