@@ -26,6 +26,6 @@ Her father abused her for almost a year before she finally snapped and fought ba
 
 When she woke up, hours had passed and she was concussed.  Her father had tied her up. She could smell smoke. She screamed for help, but no one was there, not even her father.
 
-The [[Black Crusaders]] were raiding the town, and kidnapping all of the people to use as test subjects. A demon with scrappy, greyish blue hair heard Beth's screams and found her, tied up in the barn, sobbing. The demon picked her up and gave Beth the clothes off their back before rushing back to base with her. This is how Bee and Zayne met.
+The [[Black Crusaders]] were raiding the town, and kidnapping all of the people to use as test subjects. A satyr with scrappy, greyish blue hair heard Beth's screams and found her, tied up in the barn, sobbing. The satyr picked her up and gave Beth the clothes off their back before rushing back to base with her. This is how Bee and Zayne met.
 
 ![[Bee, Zayne, Soren, Redacted.png]]![[BeeZayne Smokers.jpg]]
