@@ -21,15 +21,15 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - referred to simply as "X"
 - Founder 
 - created the [[Pursuit of Power]] pretext for the [[Black Crusaders]]	
-- cause attracts many people of all races, including angels, demons, and everything in-between.
+- cause attracts many people of all races, including sylphs, satyrs, and everything in-between.
 - rejects are more likely to seek out the crusaders.
-- [[Vi]] is first successful [[Synthetic Demon]] transplant because she had many perfect match organ transplants from her twin brother, [[Io]], who was killed and preserved for the purpose of Vi's demon.
+- [[Vi]] is first successful [[Synthetic Satyr]] transplant because she had many perfect match organ transplants from her twin brother, [[Io]], who was killed and preserved for the purpose of Vi's satyr.
 
 [[Marx]]  
 
 - "Sergeant Marx"
 - planned heir for X 
-- following X's breakthrough with synthetic demon transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
+- following X's breakthrough with synthetic satyr transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
 - made organization military
 - [[Connor]] creates refined [[Anthracyllin]]
 - [[Rei]], [[Connor]], [[Lee|Leo]], [[Vi]], [[Pherenix|Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
@@ -66,7 +66,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - referred to simply by name.
 - Son of Natz and Sierra; next in line after [[Antoinette]]
 - feared for his intelligence and power
-- Last monarch to utilize [[Synthetic Demon]]s
+- Last monarch to utilize [[Synthetic Satyr]]s
 - finds interest in humans who gained abilities that originate from closer earth- kidnaps Aiko, creates [[Jaylo]]
 - ranks become very small; people desert in large numbers because they don't think a child should lead them.
 - only crusader monarch to actually work in the field while leading
