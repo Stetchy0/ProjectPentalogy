@@ -17,11 +17,11 @@ Their finances were now up to me take care of. All of my strained patience had f
 
 I was then asked if I shaken by their death. 
 
-	Oh. 
+Oh..
 
 No. 
 
-They had all the means to achieve whatever accomplishments, and they still had the gall to perish in such a sad, pathetic way. No, I am not shaken by their death. I will not miss them. 
+They had all the means to achieve whatever accomplishments, and they still had the audacity to perish in such a sad, pathetic way. No, I am not shaken by their death. I will not miss them. 
 
 This will be the last time I even think of them. They are utter failures, and I shall surpass them in every way. 
 
