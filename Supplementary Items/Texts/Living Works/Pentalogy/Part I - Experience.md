@@ -1,4 +1,4 @@
-# Chapter One
+## Chapter One
 
 A log crumbled underneath its weight in the furnace keeping the cabin warm. One of the children in the house, a boy 14 years old, put on his fur coat and grabbed a basket to go retrieve more wood. Winter was thawing and flowers were starting to bloom, but the air hadn’t quite started to warm up just yet.
 
@@ -60,7 +60,7 @@ The two left the shop as Carter put the coin bag in his pocket. Leo chuckled, �
 
 “Yeah! Oh, let me grab your stick baskets first. I’ll catch up with you!” Leo ran back into the flower shop as Carter started to walk home. He watched the sun’s beams on the trees begin to turn orange then red as the sun set behind him as he followed the cobbled path back to his family’s cabin.  
 
-# Chapter Two
+## Chapter Two
 
 Leonidas had to stay at the flower shop a bit longer than anticipated. His mother scolded him for just running off because she needed his help with the shop. The sun had already set completely before Leo finally made it out. He had both baskets of sticks with him as he followed the cobbled path towards Carter’s family’s cabin.
 
