@@ -4,9 +4,9 @@ aliases:
   - The perfect tool
 tags:
   - pre-story
-  - demon
   - far-earth
   - farther-earth
+  - Satyr
 ---
 [[Part 0.3 - Tribute]] 
 
