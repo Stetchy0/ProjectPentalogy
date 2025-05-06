@@ -1,1 +1,1 @@
-She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part I - Chapter One]].
+She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part I - Experience]].
