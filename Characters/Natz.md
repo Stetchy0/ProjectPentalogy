@@ -12,29 +12,29 @@ Natz is a woman's man. If ever he had a weakness, it was the ladies. His ways ha
 
 Natz, mostly kept controlled by his wife, would still sometimes want for more. He would eventually slip between her fingers and sleep with a drunk colleague, putting both of their lives in jeopardy. To Estelle, there is no worse sin than cheating on someone as perfect as she is. When she found out, she would kill both Sierra, (the unwilling cheatee,) her husband, and (unsuccessfully) Sierra's son, [[Kieran]], before killing herself, making Lee and Vi's rise to power much swifter. They both left their daughter, [[Antoinette]] behind because of this drama.
 
-|   |   |
+|   |                                                                                                                                       |
 |---|---|
-|### General Information||
-|Full Name|Natz Ivanov|
-|Nickname(s)|none|
-|Age|21|
-|Gender|male|
-|Place of birth|???|
-|Date of birth|April 12|
-|Starsign|Aries|
-|Species/ Race|Demon|
-|Occupation|General|
-|### Appearance||
-|Height|6'2|
-|Weight|average|
-|Skin Color|Pale|
-|Hair Color|Dark Auburn|
-|Hair Style|Spiky|
-|Eye color|Piercing red|
-|Clothing|White button up shirts, black denim, long uniform cloak|
-|Accessories|occasionally piercings|
-|Features|muscular, sharp teeth, long ears|
-|### Combat||
-|Weapons|twin blades and body sword (blades that are attatched parallel to the forearm, as an example)|
-|Skills|very talented as a bladesman, and for picking up on details, however, is gullible and quite ignorant at times.|
-|Abilities|Avoids using magic because he thinks it is for weaklings. He would rather his body be more developed because he can show off muscles.|
+|### General Information|                                                                                                                                       |
+|Full Name| Natz Ivanov                                                                                                                           |
+|Nickname(s)| none                                                                                                                                  |
+|Age| 21                                                                                                                                    |
+|Gender| male                                                                                                                                  |
+|Place of birth| ???                                                                                                                                   |
+|Date of birth| April 12                                                                                                                              |
+|Starsign| Aries                                                                                                                                 |
+|Species/ Race| Satyr                                                                                                                                 |
+|Occupation| General                                                                                                                               |
+|### Appearance|                                                                                                                                       |
+|Height| 6'2                                                                                                                                   |
+|Weight| average                                                                                                                               |
+|Skin Color| Pale                                                                                                                                  |
+|Hair Color| Dark Auburn                                                                                                                           |
+|Hair Style| Spiky                                                                                                                                 |
+|Eye color| Piercing red                                                                                                                          |
+|Clothing| White button up shirts, black denim, long uniform cloak                                                                               |
+|Accessories| occasionally piercings                                                                                                                |
+|Features| muscular, sharp teeth, long ears                                                                                                      |
+|### Combat|                                                                                                                                       |
+|Weapons| twin blades and body sword (blades that are attatched parallel to the forearm, as an example)                                         |
+|Skills| very talented as a bladesman, and for picking up on details, however, is gullible and quite ignorant at times.                        |
+|Abilities| Avoids using magic because he thinks it is for weaklings. He would rather his body be more developed because he can show off muscles. |
