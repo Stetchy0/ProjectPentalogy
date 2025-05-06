@@ -10,9 +10,9 @@ tags:
   - crusader-runaway
   - gay
   - human
-  - syntheticdemon
   - close-earth
   - closer-earth
+  - synthetic-satyr
 ---
 Serana Mariposa is the child of popular actress and model, [[Vanessa|Vanessa Mariposa]]. He was born as a male, but his mother wanted a daughter, so she raised Serana as a girl. He was born in [[Closer Earth|closer earth]]. He was introduced in [[Part IV - Truth]].
 
@@ -22,4 +22,4 @@ Vanessa and Serana Mariposa were some of the biggest names in magazines and phot
 
 He would chop off his long, blonde hair that made him very recognizable, and live in the back alleys of the city. [[Kiki]] would stumble upon him while scouting [[Closer Earth]], and would offer him a place to stay in exchange for work. Soren would immediately agree, because he knew that his mother would have filed missing reports and hired detectives to find him by then.
 
-Soren would be given a [[Synthetic Demon]] when he joined up with the [[Black Crusaders]] by [[Conre]], who had synthesized a butterfly demon, specifically to have illusion abilities.
+Soren would be given a [[Synthetic Satyr]] when he joined up with the [[Black Crusaders]] by [[Conre]], who had synthesized a butterfly satyr, specifically to have illusion abilities.
