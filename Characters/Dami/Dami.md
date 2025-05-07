@@ -15,4 +15,4 @@ He was born in [[Farther Earth|farther earth]]. He was mentioned multiple times 
 
 The stickers and band-aids aren't canon, sorry :(
 
-![[Image Gallery/Art/Art by Stetchy0/Dami.png]]![[Image Gallery/Art/Art by Stetchy0/Dami 2.png]]![[Dami 3.png]]![[Dami_chill.jpg]]
+![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Dami.png]]![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Dami 2.png]]![[Dami 3.png]]![[Dami_chill.jpg]]
