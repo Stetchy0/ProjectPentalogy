@@ -1,4 +1,0 @@
----
-aliases:
-  - "Project: Hope Effect"
----
