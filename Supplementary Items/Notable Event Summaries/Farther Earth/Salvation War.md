@@ -1,0 +1,5 @@
+The salvation war happened thousands of years ago. It doesn't necessarily have a start date, it was just an ongoing feud from pre-history, that ended about 2500 years before the story begins. It was fought between [[Sylph|Sylphs]], who wanted to rid the world of all but themselves, and [[Satyr|Satyrs]], who wanted to protect the earth and all of its precious inhabitants. [[Human|Humans]], who were enslaved by the Sylphs since pre-history, eventually started to revolt against the Sylphs and joined alongside the [[Satyr|Satyrs]], ultimately leading to their victory. 
+
+It took a few generations for the three races to begin to associate with one another, and [[Sylph|Sylphan]] religion and culture drew from [[Satyr|Satyran]] philosophy over time - all life is sacred.
+
+The Sylphs would begin to make reparation part of their culture as well. These sylphs would be nomadic and simple people who would visit as many villages and cities to offer labor, food, or assistance of some kind.
