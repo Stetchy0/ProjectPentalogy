@@ -7,6 +7,7 @@ tags:
   - closer-earth
   - gay
   - human
+  - Part-III-Hope
 ---
 is [[Moyo]]'s girlfriend. 
 
