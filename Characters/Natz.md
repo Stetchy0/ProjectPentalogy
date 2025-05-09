@@ -22,7 +22,7 @@ Natz, mostly kept controlled by his wife, would still sometimes want for more. H
 |Place of birth| ???                                                                                                                                   |
 |Date of birth| April 12                                                                                                                              |
 |Starsign| Aries                                                                                                                                 |
-|Species/ Race| Satyr                                                                                                                                 |
+|Species/ Race| nymph                                                                                                                                 |
 |Occupation| General                                                                                                                               |
 |### Appearance|                                                                                                                                       |
 |Height| 6'2                                                                                                                                   |
