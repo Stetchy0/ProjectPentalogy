@@ -5,6 +5,31 @@ aliases:
   - crusaders
   - the crusaders
   - black death
+  - Bad guys
+  - The distributors
+tags:
+  - blackcrusader
+  - BC-Monarch
+  - far-earth
+  - farther-earth
+  - crusader-general
+  - crusader-runaway
+  - human
+  - nymph
+  - Half-nymph
+  - imp
+  - dead
+  - Part-I-Experience
+  - Part-II-Sanctuary
+  - Part-III-Hope
+  - Part-IV-Truth
+  - Part-V-Balance
+  - pre-story
+  - scientist
+  - Sylph
+  - synthetic-nymph
+  - victim-of-science
+  - created-by-science
 ---
 The Black Crusaders were an organization founded by Xerxes, better known as 
 [[X]], to seek great and mystical powers and abilities, [[Pursuit of Power]], pushing far beyond anything ethical, by any means necessary. 
@@ -21,15 +46,15 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - referred to simply as "X"
 - Founder 
 - created the [[Pursuit of Power]] pretext for the [[Black Crusaders]]	
-- cause attracts many people of all races, including sylphs, satyrs, and everything in-between.
+- cause attracts many people of all races, including sylphs, Nymphs, and everything in-between.
 - rejects are more likely to seek out the crusaders.
-- [[Vi]] is first successful [[Synthetic Satyr]] transplant because she had many perfect match organ transplants from her twin brother, [[Io]], who was killed and preserved for the purpose of Vi's satyr.
+- [[Vi]] is first successful [[Synthetic Nymph]] transplant because she had many perfect match organ transplants from her twin brother, [[Io]], who was killed and preserved for the purpose of Vi's Nymph.
 
 [[Marx]]  
 
 - "Sergeant Marx"
 - planned heir for X 
-- following X's breakthrough with synthetic satyr transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
+- following X's breakthrough with synthetic Nymph transplants, his campaign kidnaps many children and adolescents to be used for experimentation and future super soldiers.
 - made organization military
 - [[Connor]] creates refined [[Anthracyllin]]
 - [[Rei]], [[Connor]], [[Lee|Leo]], [[Vi]], [[Pherenix|Felix]], [[Amy]], [[Creek]], [[Estelle]], [[Cat]], [[Birde]], [[Zeph]], [[Sierra]] 
@@ -66,7 +91,7 @@ Throughout the metamorphoses of the organization, the leadership changed drastic
 - referred to simply by name.
 - Son of Natz and Sierra; next in line after [[Antoinette]]
 - feared for his intelligence and power
-- Last monarch to utilize [[Synthetic Satyr]]s
+- Last monarch to utilize [[Synthetic Nymph]]s
 - finds interest in humans who gained abilities that originate from closer earth- kidnaps Aiko, creates [[Jaylo]]
 - ranks become very small; people desert in large numbers because they don't think a child should lead them.
 - only crusader monarch to actually work in the field while leading
