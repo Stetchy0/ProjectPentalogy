@@ -5,6 +5,7 @@ tags:
   - far-earth
   - farther-earth
   - gay
+  - Half-nymph
 aliases:
   - Antoinette Ivanov
   - Madame Antoinette
