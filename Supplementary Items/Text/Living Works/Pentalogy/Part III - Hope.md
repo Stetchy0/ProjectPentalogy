@@ -10,7 +10,7 @@ It follows [[Aiko]], a new “superhero” struggling with her responsibilities,
  
 It is the first segment of the story that introduces inter-dimensional conflict with the interaction of [[Farther Earth]] inhabitants and [[Closer Earth]] inhabitants.
 
-There are three main “Acts” in this, along with a number of songs for certain scenes that Kozypugs decided to be a lunatic theater kid over. 
+There are three main “Acts” divided into ten “tracks” in this, along with a number of songs for certain scenes that Kozypugs decided to be a lunatic theater kid over. 
 
 Act I
 - ”1- This-Is-PHE.mp3”
@@ -41,4 +41,4 @@ Finale
 - Team Hope successfully infiltrates the crusader base by inciting a riot. General Fox does not allow the guards to shoot at the crowd, paranoid about another [[March of Remembrance]]. All fight the generals and force them to yield. Aiko and Loki almost reunite until Antoinette forces Loki to duel on the [[Glass Balcony]] for her disobedience, as taking the eye of [[Loki|(Deadname) Logan Ivanov]] hadn’t seemed to change anything. There is only one entrance to it, and Antoinette has made sure none of the heroes will access it through the base. 
 - “10- Forget.mp3”
 - Loki struggles to defend herself against Antoinette, and is saved by Aiko at the last second, along with Persephone. Antoinette orders the two surviving generals to join her, but both turn their backs. Aiko lands the final blow, beheading Antoinette with her electric sword. However, the impact is so strong it knocks Aiko out and causes the glass balcony to shatter. While both are falling to what could be their death, Loki reaches for the unconscious Aiko, and holds onto her. Wings miraculously emerge from Loki’s back, and she manages to save her and Aiko. Loki’s wings serve to compensate for the overbearing sorrow she carried - weightlessness. 
-- Everyone celebrates their victory and returns back home. At the very end, Aiko and Loki finally confess they like each other.
+- Everyone celebrates their victory and returns back home. At the very end, Aiko and Loki finally tell each other they’re in love.
