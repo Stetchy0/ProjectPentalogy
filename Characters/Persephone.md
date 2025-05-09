@@ -9,6 +9,11 @@ aliases:
   - Persephone Stewart
   - Percy
   - Miss Mischief (briefly)
+  - Kore
+tags:
+  - Half-nymph
+  - far-earth
+  - farther-earth
 ---
 [[Part 0.8 - Singularity]]
 
