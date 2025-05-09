@@ -9,11 +9,12 @@ tags:
   - scientist
   - crusader-general
   - farther-earth
-  - synthetic-satyr
+  - synthetic-nymph
+  - Part-III-Hope
 ---
 Enemy and fugitive of the [[Black Crusaders]]. He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part 0.11 - Desertion]].
 
-Chrysanthemum Corday has attributes of a deer to his encounter with a  [[Synthetic Satyr]], hence the antlers on his head and the tuffs of hair that appear to look like ears. He is one of the only individuals to outsmart and overpower his injected satyr, the only other individual being [[Connor]].
+Chrysanthemum Corday has attributes of a deer to his encounter with a  [[Synthetic Nymph]], hence the antlers on his head and the tuffs of hair that appear to look like ears. He is one of the only individuals to outsmart and overpower his injected Nymph, the only other individual being [[Connor]].
 
 Chrys used to be a ruthless general of the [[Black Crusaders]] until his sister, [[Charlotte Corday]], murdered General [[Lavender]], the brother they grew up with. 
 
