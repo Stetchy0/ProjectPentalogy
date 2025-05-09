@@ -16,7 +16,7 @@ Carter furrowed his brows a bit. “Is something going on?”
 
 “No.. maybe? I don’t know. Do you remember the Crusaders I told you about?”
 
-It took him a moment, but he did remember. The Black Crusaders. They are a large and private militia made up mostly by satyrs that works for the kingdom and protects outlier villages like the one they lived in, at least, that’s what their posters say.
+It took him a moment, but he did remember. The Black Crusaders. They are a large and private militia made up mostly by nymphs that works for the kingdom and protects outlier villages like the one they lived in, at least, that’s what their posters say.
 
 “I think so, they’re like knights or something.”
 
@@ -38,11 +38,11 @@ Leo sighed and spoke after a moment, “Read anymore of your nerd books?” Cart
 
 “I see.”
 
-Carter’s attention started to drift off to the busy street. There were humans, satyrs, and sylphs roaming about. For sylphs and elves, it was typical for them to celebrate the first day of Spring as a holiday. They would give each other gifts to celebrate rebirth.
+Carter’s attention started to drift off to the busy street. There were humans, nymphs, and sylphs roaming about. For sylphs and elves, it was typical for them to celebrate the first day of Spring as a holiday. They would give each other gifts to celebrate rebirth.
 
-The satyrs would celebrate the first day of spring as it was a war victory from thousands of years ago against the sylphs that saved their species from extinction. They called it Salvation Day. Carter chuckled. He was a nerd after all. He found comfort in the fact that both races celebrated the day together now, as the date had become twice as significant over time. Humans were kind of just, stuck in the middle, but celebrated with them anyways. They had fought alongside the satyrs all those years ago, after all.
+The nymphs would celebrate the first day of spring as it was a war victory from thousands of years ago against the sylphs that saved their species from extinction. They called it Salvation Day. Carter chuckled. He was a nerd after all. He found comfort in the fact that both races celebrated the day together now, as the date had become twice as significant over time. Humans were kind of just, stuck in the middle, but celebrated with them anyways. They had fought alongside the nymphs all those years ago, after all.
 
-Carter noticed a group of uniformed men at the blacksmith’s shop across the street. There were two cloaked men with the Black Crusader’s emblem on the shoulders of their squared capes. They looked like they could be brothers. He noticed their long pointy ears, they were satyrs. Carter felt his heart drop as he recalled what Father was talking about before he left that morning.
+Carter noticed a group of uniformed men at the blacksmith’s shop across the street. There were two cloaked men with the Black Crusader’s emblem on the shoulders of their squared capes. They looked like they could be brothers. He noticed their long pointy ears, they were nymphs. Carter felt his heart drop as he recalled what Father was talking about before he left that morning.
 
 Leo noticed Carter’s fear and curiosity and investigated the shop as well. There were a few masked individuals wearing a similar uniform, just with bird-like masks that covered their eyes and stuck out at their noses, and shorter capes that did not bear the emblem. Those two in the front must be special.
 
@@ -106,7 +106,7 @@ Felix opened his eyes drowsily and noticed the man holding his body was a strang
 
 The stranger chuckled, “Are you sick or something? How was your nap, sleeping beauty?” Felix looked around and noticed his brother and Leo across the room, tied to the table. That can’t be right, he must still be asleep. “This must be.. a dream..hmm..”
 
-Carter was yelling through the bindings on his mouth, in anger and desperation, at the man holding his brother, the same man who killed both of his parents. The man growled a bit, “Shut up, kid, there’s nothing you can do. Tranq' them already, would ya?” He kept struggling and trying to break free, but he felt Marx poke his neck with something sharp, and he began to fall asleep almost immediately. He did the same to Leo, who still showed no struggle. They both blacked out. As Carter's eyes grew heavy, he watched the two satyrs rush to his brother, as he started to seize.
+Carter was yelling through the bindings on his mouth, in anger and desperation, at the man holding his brother, the same man who killed both of his parents. The man growled a bit, “Shut up, kid, there’s nothing you can do. Tranq' them already, would ya?” He kept struggling and trying to break free, but he felt Marx poke his neck with something sharp, and he began to fall asleep almost immediately. He did the same to Leo, who still showed no struggle. They both blacked out. As Carter's eyes grew heavy, he watched the two nymphs rush to his brother, as he started to seize.
 
 He felt..warm.
 
@@ -152,7 +152,7 @@ Carter scoffed "Why are you being so nice to me now?"
 
 "Was my father right about you knights? Do you and your 'knights' feign good intentions? Just to get us vulnerable?"
 
-"To answer all *three* of those questions, yes. The only reason my ranks do bounties and simple labor is to get on the good side of human villages. Has your brother ever... made a deal with a satyr, or sylph, o-or anything?"
+"To answer all *three* of those questions, yes. The only reason my ranks do bounties and simple labor is to get on the good side of human villages. Has your brother ever... made a deal with a nymph, or sylph, o-or anything?"
 
 "What? What kind of stupid question is that? We are basket makers"
 
