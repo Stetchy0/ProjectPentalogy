@@ -12,4 +12,4 @@ tags:
 
 Her actions single-handedly removed two out of three generals during that period, deeply weakening Crusader organization. A year after her hanging, fellow rebels started a riot called the [[March of Remembrance]] 
 
-She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part 0.11 - Desertion]] (i think)
+She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part 0.11 - Desertion]] (i think) (yeah you’re right, she’s alluded to)
