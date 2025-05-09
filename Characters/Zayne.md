@@ -6,7 +6,7 @@ tags:
   - far-earth
   - farther-earth
   - gay
-  - Satyr
+  - nymph
 ---
 Zayne was found by [[Kieran]] in [[Siverial]] while he was scouting. They were pickpocketing people with ease and living off of scraps. Kieran could sense they had significant abilities, and he was correct. They were born in [[Farther Earth|farther earth]]. They were introduced in [[Part IV - Truth]].
 
