@@ -9,7 +9,7 @@ tags:
   - BC-Monarch
   - Part-II-Sanctuary
   - Part-V-Balance
-  - Half-Satyr
+  - Half-nymph
 ---
 He was born in [[Farther Earth|farther earth]]. He was mentioned multiple times in the [[Part 0 - Prolegomenon]], but is formally introduced in [[Part III - Hope]].
 
