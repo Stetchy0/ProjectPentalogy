@@ -10,6 +10,6 @@ tags:
   - crusader-runaway
   - human
   - Part-I-Experience
-  - synthetic-satyr
+  - synthetic-nymph
 ---
 Jace is [[Azazel]]'s host. He was born in [[Farther Earth|farther earth]]. He was introduced in [[Part I - Experience]].
