@@ -10,6 +10,8 @@ tags:
   - farther-earth
   - gay
   - scientist
+  - Part-IV-Truth
+  - created-by-science
 ---
 Conre is a clone of [[Connor]], and the only true successful clone. He is believed to be the second one, because of how [[Lee]] became Sergeant. He was created in [[Farther Earth|farther earth]], and introduced in [[Part IV - Truth]].
 
