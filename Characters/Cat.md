@@ -1,10 +1,10 @@
 ---
 tags:
   - blackcrusader
-  - synthetic-satyr
   - far-earth
   - farther-earth
   - crusader-runaway
+  - Part-I-Experience
 ---
 She was born in [[Farther Earth|farther earth]]. She is introduced in [[Part 0.4 - Prestige]].
 
