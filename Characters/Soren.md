@@ -22,4 +22,4 @@ Vanessa and Serana Mariposa were some of the biggest names in magazines and phot
 
 He would chop off his long, blonde hair that made him very recognizable, and live in the back alleys of the city. [[Kiki]] would stumble upon him while scouting [[Closer Earth]], and would offer him a place to stay in exchange for work. Soren would immediately agree, because he knew that his mother would have filed missing reports and hired detectives to find him by then.
 
-Soren would be given a [[Synthetic nymph]] when he joined up with the [[Black Crusaders]] by [[Conre]], who had synthesized a butterfly nymph, specifically to have illusion abilities.
+Soren would be given a [[Synthetic Nymph]] when he joined up with the [[Black Crusaders]] by [[Conre]], who had synthesized a butterfly nymph, specifically to have illusion abilities.
