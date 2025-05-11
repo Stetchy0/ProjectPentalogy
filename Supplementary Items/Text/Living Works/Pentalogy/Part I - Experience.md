@@ -2,7 +2,7 @@
 
 A log crumbled underneath its weight in the furnace keeping the cabin warm. One of the children in the house, a 14 year old boy, put on his fur coat and grabbed a basket to go retrieve more wood. Winter was thawing and flowers were starting to bloom, but the air hadn’t quite started to warm up just yet.
 
-As Carter was putting on his gloves and about to leave, his younger brother grabbed his basket and looked up at him, eager to help. Carter sighed, “Felix, I’m glad you want to help, but I don’t want you getting sick.” He could see the bags under Felix’s eyes already. Felix retaliated, “I’m sick of being stuck in the house! I’ve been inside all winter, and it’s finally spring! Can I please help? I’ll stay awake as long as I can and we will bring home hundreds of sticks!” Carter chuckled, “As long as it’s okay with Mom.” 
+As Carter was putting on his gloves and about to leave, his younger brother, who was only 11, grabbed his basket and looked up at him, eager to help. Carter sighed, “Felix, I’m glad you want to help, but I don’t want you getting sick.” He could see the bags under Felix’s eyes already. Felix retaliated, “I’m sick of being stuck in the house! I’ve been inside all winter, and it’s finally spring! Can I please help? I’ll stay awake as long as I can and we will bring home hundreds of sticks!” Carter chuckled, “As long as it’s okay with Mom.” 
 
 After a few minutes of pleading with their protective mother, they left the cabin to gather twigs, sticks, logs and limbs. Felix admired the wildflowers blooming between the patches of melting snow as he collected fallen limbs. He was happy to be awake, but he could already feel his eyelids becoming heavy again and he sighed.
 
@@ -191,3 +191,89 @@ Carter felt a bit of relief. At least he, Felix, and Leo were alive, and togethe
 "Well, you clearly have no idea what that could've been, so your question time has run out. Sorry kid. Can't have you trying to figure out where we are headed."
 
 Carter looked back at Marx before he administered a full dose of tranquilizer, putting him into sleep, correctly this time.
+
+
+## Chapter Three
+
+Carter woke up alone in a windowless room. It was dimly lit, just enough to see the reflections on the blank walls, no.. mirrors. He saw his reflection across the room. He was thinner than before.
+
+*How long have I been out?*
+
+Carter got up feebly. He was cold, and very hungry. He noticed a cutout on one of the mirrored walls. The exit. There wasn't a handle on this side, and the door jam was completely flush. The only way out would be if someone opened it, or if he broke the door.
+
+He put his ear against the door and knocked softly. He heard a mellow *thump* with each knock. The other side of the mirror was stone or metal. He would not be able to break this door. Carter backed away, and he felt a weight form in his chest. He sat in the middle of the room and stared at the door, at himself in the reflection.
+
+*Oh god.. Why.. Why did I.. Why couldn't I just listen to my father?..*
+
+He began to lose hope. He looked at the corners of the ceiling, and the tiling on the floor. He put his ear to the floor and knocked. 
+
+The floor is hollow. There is space beneath him. His mind began to run at a thousand miles an hour. *How would I even break the tiles? There is definitely some sort of support holding up this room..* 
+
+He began to keep knocking on the floor softly, trying to find where any support beams or struts would be, so he could determine the weakest point in the floor. After a few minutes dragging his ear across the filthy tiles, trying to find the supports, he began to hear someone approaching from vibrations in the tile. 
+
+He quickly sat up and looked at the door. He tried to listen to whatever kind of locking mechanism held the door shut. There was a dragging... then the creak of a knob. The door opened out from the room and was barred shut, but was opened by a simple door handle.
+
+Someone wearing a beaked mask and hooded black cloak stood in the doorway. They were holding a tray with a bowl and a glass of water on it. Carter did not realize until now just how hungry he was. He feigned complete weakness and looked up at the stranger feebly. He noticed their eyes.. huh. Two different colors. Wait.
+
+*This is that girl from the blacksmith shop!*
+
+His eyes widened a bit with realization. She seemed to notice. The door was closed by someone else. Carter groaned a bit, realizing his window for escape had closed.
+
+The girl sat beside him and put the tray down. "I'm sure you are very hungry. You have been kept asleep for a while, and fed out of a tube."
+
+"..What are you talking about? How long have I been asleep? Where are my friends? Where's my brother?"
+
+The girl looked at him blankly, surprised by his sudden questioning. "I.. unfortunately have no answers to give you. I only tend to the captives and do as the Sergeant asks."
+
+Carter pulled the tray towards him. The bowl had some sort of soup with rice, but had no utensils. He began sipping the broth, and was a bit surprised that it didn't taste like shit. Actually, it tasted pretty good.
+
+"This is pretty good soup.." 
+
+The girl smiled, "Thank you! I try to make these times just a bit better-"
+
+Carter began to sob. The girl's expression saddened. "I'm sorry that you're here, but I am fortunate to have been able to meet you before you change. You seem like a very caring and smart human."
+
+"..before I what?"
+
+The girl was about to continue before the door opened again. Natz was standing there. "Get out, Cat."
+
+The girl, "Cat," stood up and looked at Carter with a worried expression before she left the room swiftly.
+
+Natz shut the door and looked down at Carter. "Marx says you're smart, so I've taken extra measures to keep you contained. I've listened to you knock on the walls and floor for a few minutes. I'm sure by now that you have discovered the floor is hollow."
+
+He smiled slightly. Carter bit his tongue. He _hates_ this guy.
+
+"Beneath your cell is the laboratory. You'll end up there soon anyway, so dig through the floor all you like."
+
+"Where are my friends?"
+
+"The crybaby or sleeping beauty?"
+
+"They have names you know."
+
+"I don't care much for your uninteresting human names. They are being kept in cells just like you. They are being treated the same as you are. Except.. I think the sleepy one could already be in the lab by now.."
+
+Natz smirked. That disgusting, malevolent smirk..
+
+Carter stood up and clenched his fists. "I ought to wipe that smirk off of your face."
+
+He looked at Carter and laughed.
+
+*He fucking laughed.*
+
+"You can't do anything to me that would change the fate of your brother."
+
+*Why am I so powerless? Why can't I do anything?*
+
+Natz saw his mental defeat and chuckled. "I'll retrieve you when it's your turn downstairs." He turned back and was about to be out the door before Carter threw his bowl of hot soup at the back of his head as hard as he could. Natz growled in pain and glared at him before slamming the door as he left. He heard Natz yelling at some people, but couldn't quite understand what he was saying. 
+
+Quite soon after, the door opened again, and a bird-masked guard with huge red eyes marched in and directly towards Carter. Carter back up. "Who are you?"
+
+The man just smiled and punched him in the gut. Carter yelped, fell over, and gripped his stomach in pain. His vision began to fade because he was so weak. He felt himself lose the strength to hold his head up. The man started to drag him by the back of his collar down the hallway.
+
+*It would be so easy to run now.. I could get up.. and find Felix.. and Leo.. and go back home..*
+
+His eyelids became heavier and heavier. He fell unconscious from his pain and hunger after only a minute or two.
+
+## Chapter Four
+
