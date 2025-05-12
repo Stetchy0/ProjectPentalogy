@@ -22,4 +22,4 @@ After the events of [[Natz's Coup D'état]], Vi took the opportunity to promote 
 Lee comes into existence in [[Part II - Sanctuary]].
 
 
-![[Lee.jpg]]![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Lee.png]]![[Lee (I'm yours).png]]![[Lee 1.jpg]]![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Lee 2.png]]![[Lee-1.jpg]]![[Lee, Dami, Connor.jpg]]![[Lee(myhusband).png]]
+![[Lee.jpg]]![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Lee.png]]![[Lee (I'm yours).png]]![[Lee 1.jpg]]![[Supplementary Items/Image Gallery/Art/Art by Stetchy0/Lee 2.png]]![[Lee-1.jpg]]![[Lee, Dami, Connor.jpg]]![[Lee(myhusband).png]]![[Supplementary Items/Image Gallery/Art/Art by Kozypugs/Lee.png]]![[Lee 1.png]]![[Supplementary Items/Image Gallery/Art/Art by Kozypugs/Lee 2.png]]![[Lee, Pherenix, Connor.jpg]]
