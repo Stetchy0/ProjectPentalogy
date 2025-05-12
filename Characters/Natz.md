@@ -37,4 +37,4 @@ Natz, mostly kept controlled by his wife, would still sometimes want for more. H
 |### Combat|                                                                                                                                       |
 |Weapons| twin blades and body sword (blades that are attatched parallel to the forearm, as an example)                                         |
 |Skills| very talented as a bladesman, and for picking up on details, however, is gullible and quite ignorant at times.                        |
-|Abilities| Avoids using magic because he thinks it is for weaklings. He would rather his body be more developed because he can show off muscles. |
+|Abilities| Avoids using magic because he thinks it is for weaklings. He would rather his body be more developed because he can show off muscles. |![[Natz, Marx.png]]
