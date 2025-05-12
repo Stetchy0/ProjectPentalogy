@@ -13,4 +13,4 @@ Element: Water
 
 Her ability is healing to compensate for the physical self-harm she copes with. Once  Emira heals anyone else, she can no longer heal herself within the same day
 
-![[Emira 11.jpeg]]
+![[Emira 11.jpeg]]![[Emiraa.png]]
