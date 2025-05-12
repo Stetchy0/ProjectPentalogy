@@ -19,3 +19,5 @@ Abaddon is the concept of balance. He isn't necessarily a force specifically for
 Alex evolves to be Abaddon, to protect the [[Singularity]], [[Persephone]], as she is at the center of the scale between the two planes of existence.
 
 Abaddon's home realm is [[Closer Earth|closer earth]], however, his abilities are not tethered to one dimension like [[Dami|Mephisto]]'s.
+
+Abaddon never directly interacts with situations, only brings them back to balance. He undoes things that weren't supposed to happen, then vanishes. He can only appear using people who have achieved balance, which is typical of people who have experienced both extreme evil and chaos, as well as serene peace and calm. [[Alex]] is a perfect vessel in this sense, as he was born as [[Emilio Banes]] and eventually became a father for [[Len]] and [[Jaylo]], a very drastic jump from on side of the scale to another.
