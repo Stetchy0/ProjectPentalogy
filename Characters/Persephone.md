@@ -23,4 +23,7 @@ She takes up the name "Percy" to have a more normal sounding name in closer eart
 
 She was born in [[Farther Earth|farther earth]].
 
-Born Stalix Ivanov, she is [[Dami]]'s older sister.
+Born Stalix Ivanov, she is [[Dami]]'s older sister.![[Persephone (8).png]]![[Persephone (7).png]]![[Persephone (6).png]]![[Persephone (3).png]]![[Persephone (2).jpg]]
+![[Persephone (1).jpg]]
+
+![[Persephone (1).png]]
