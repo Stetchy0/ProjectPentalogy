@@ -20,4 +20,4 @@ Persephone, though she was born in [[Farther Earth]], has no home dimension beca
 
 [[Dami]], after searching for the constant for eons as different lives in different timelines in different realities, realizes that *he never had a sister in any reality until this one.* Persephone was not supposed to exist, yet she did in this universe. This is how he was able to become Mephisto in [[Part V - Balance]]. However, him harnessing Persephone in the first place is what awakens [[Abaddon]] in this timeline, because [[Alex]] lost the little bit of darkness left within him; he had grieved for Persephone, and promised that he would help her live a normal life, and Mephisto's abuses were getting in the way of that. 
 
-Alex's ascension to [[Abaddon]] would surprise Mephisto because, in every other timeline Mephisto had seen, Alex had devolved back into a [[hellish nymph]] because he became outraged after he lost his loved ones once again.
+Alex's ascension to [[Abaddon]] would surprise Mephisto because, in every other timeline Mephisto had seen, Alex had devolved back into a [[Death Nymphs]] because he became outraged after he lost his loved ones once again.
