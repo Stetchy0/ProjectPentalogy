@@ -15,7 +15,7 @@ tags:
   - far-earth
   - farther-earth
 ---
-[[Part 0.8 - Singularity]]
+[[Part 2.1 - Singularity]]
 
 Persephone is the [[Singularity]]. 
 
