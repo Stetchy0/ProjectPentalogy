@@ -9,7 +9,9 @@ Synthetic nymphs are created by the [[Black Crusaders]] for the sole purpose of 
 
 ![[Synthetic Nymphs.png]]
 
-Unbeknownst to the Crusaders, not only did they create injectable abilities, they created bodiless, conscious nymphs that desperately try to take control of the bodies they inhabit. When the nymphs gained control of their host, they inherit the host's memories and behaviors, however, they would slowly notice that they were not themselves. Some even rename themselves, not exactly understanding that they had become the nymph that inhabits them. It behaves like a slow infection to the host, and slowly takes them over. Most of them end up manic and unstable if they are not killed first.
+Unbeknownst to the Crusaders, not only did they create injectable abilities, they created bodiless, conscious nymphs that desperately try to take control of the bodies they inhabit. These nymphs appear as the animal they were derived from within the host's [[Dreamscape]]. 
+
+When the nymphs gained control of their host, they inherit the host's memories and behaviors, however, they would slowly notice that they were not themselves. Some even rename themselves, not exactly understanding that they had become the nymph that inhabits them. It behaves like a slow infection to the host, and slowly takes them over. Most of them end up manic and unstable if they are not killed first.
 
 This is not always the case though, as each synthetic nymph is distinct. For example, [[Soren]]'s nymph, a butterfly, is extremely weak, and its abilities are completely non-physical. It manifests itself *within* Soren as an attachment to butterflies, rather than completely overthrowing him, like the fox nymph within [[Lee]].
 
