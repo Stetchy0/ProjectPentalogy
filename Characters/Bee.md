@@ -29,4 +29,4 @@ When she woke up, hours had passed and she was concussed.  Her father had tied h
 
 The [[Black Crusaders]] were raiding the town, and kidnapping all of the people to use as test subjects. A Nymph with scrappy, greyish blue hair heard Beth's screams and found her, tied up in the barn, sobbing. The Nymph picked her up and gave Beth the clothes off their back before rushing back to base with her. This is how Bee and Zayne met.
 
-![[Bee, Zayne, Soren, Redacted.png]]![[BeeZayne Smokers.jpg]]
+![[Bee, Zayne, Soren, Redacted.png]]![[BeeZayne Smokers.jpg]]![[BEE.png]]![[BeeZayne.jpg]]
