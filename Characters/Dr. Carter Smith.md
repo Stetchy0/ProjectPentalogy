@@ -12,4 +12,4 @@ tags:
   - human
   - Part-III-Hope
 ---
-Dr. Carter Smith is a good friend to [[Chrys]]. He is the dimensional variant of [[Connor]], and [[Luca]]'s father. He was born in [[Closer Earth|closer earth]]. He was introduced in [[Part III - Hope]].
+Dr. Carter Smith is a good friend to [[Chrys]]. He is the dimensional variant of [[Connor]], and [[Luca]]'s father. He was born in [[Closer Earth|closer earth]]. He was introduced in [[Part III - Hope]].![[Dr. Carter.png]]![[Dr. Carter, Chrys.png]]
