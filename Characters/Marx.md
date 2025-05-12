@@ -18,3 +18,4 @@ He would quickly be recognized as a crazed strategist, rising in the ranks swift
 The highest ranked at the time, [[X]], taught him war tactics and everything he knows about magic and combat. X would become his father figure, however, his brother Natz hated the guy because he wasn't actually his father. This is what put the wedge between the once close brothers.
 
 X wouldn't tell this to Marx, but he had planned Marx to be his successor. When X is suddenly killed, Marx completely changes due to grief that he bottles up, and his crazed "Firestarter" side would slowly cease to exist. He would remain within the walls of the bunker, planning from the shadows, during his entire reign as Sergeant of the [[Black Crusaders]].
+
