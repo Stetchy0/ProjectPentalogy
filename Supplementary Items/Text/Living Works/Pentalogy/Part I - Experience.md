@@ -277,3 +277,18 @@ His eyelids became heavier and heavier. He fell unconscious from his pain and hu
 
 ## Chapter Four
 
+Leo kept his eyes open. He was afraid he wouldn't wake up if he gave in to sleep.
+
+It was getting more difficult to breathe.
+
+The air was dense and humid, and he felt weak from fatigue and hunger. He felt the rope tied alund his chest and tried moving it down so it would be easier to take deeper breaths. 
+
+It was futile.
+
+He sighed and rubbed the bandages on his neck. He was starting to feel a bit dizzy from all the shit they keep injecting into him.
+
+*You could kill them, you know*
+
+...
+
+*Why am I thinking like that?*
