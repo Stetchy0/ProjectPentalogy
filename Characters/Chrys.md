@@ -26,4 +26,15 @@ His distress from being hunted and in constant pain made him vulnerable to being
 
 In an impulsive attempt to kill the other generals (along with himself), he accidentally opens a portal to [[Closer Earth|closer earth]], leading to all of the conflict in the latter 3 parts of the pentalogy.
 
-![[Chrys 4.jpeg]]
+![[Chrys 4.jpeg]]![[Chrys (1).jpg]]
+![[Chrys (1).png]]
+![[Chrys (2).png]]
+![[Chrys (2).jpg]]
+![[Chrys (3).png]]
+![[Chrys (4).png]]
+![[Chrys (5).png]]
+![[Chrys (6).png]]
+![[Chrys (7).png]]
+![[Chrys (9).png]]
+![[Chrys (10).png]]
+![[Chrys (11).png]]
