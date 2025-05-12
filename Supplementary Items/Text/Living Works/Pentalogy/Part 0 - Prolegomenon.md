@@ -3,8 +3,6 @@ aliases:
   - Prolegomenon
   - Prologue Series
   - Pre-stories
-tags:
-  - pre-story
 ---
 In Chronological Order
 	[[Part 0.1 - Twisted|Twisted]]
@@ -16,7 +14,7 @@ In Chronological Order
 	[[Part 0.7 - Devil|Devil]]
 **[[Part I - Experience]]**
 **[[Part II - Sanctuary]]**
-	[[Part 0.8 - Singularity|Singularity]]
+	[[Part 2.1 - Singularity|Singularity]]
 	[[Part 0.9 - Satisfaction|Satisfaction]]
 	[[Part 0.10 - A Busker's Serenade|A Busker's Serenade]]
 	[[Part 0.11 - Desertion|Desertion]]
