@@ -7,4 +7,4 @@ tags:
   - Part-I-Experience
   - human
 ---
-She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part 0.7 - Devil]].
+She was born in [[Farther Earth|farther earth]]. She was introduced in [[Part 0.7 - Devil]].![[Natz, Estelle.png]]
