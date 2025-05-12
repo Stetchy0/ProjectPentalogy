@@ -1,0 +1,1 @@
+This is where the afterlife takes place. It is natively inhabited by [[Death Nymphs]].
