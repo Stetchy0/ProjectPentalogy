@@ -9,8 +9,9 @@ tags:
 aliases:
   - Antoinette Ivanov
   - Madame Antoinette
+  - Roach
 ---
-Antoinette Ivanov is the successor to the [[Black Crusaders]] after the death of her parents, [[Natz]] and [[Estelle]], and the fall of [[Lee]] and [[Vi]]. She was born in [[Farther Earth|farther earth]]. She is formally introduced in [[Part II - Sanctuary]], and is the main antagonist and leader of the Black Crusaders in [[Part III - Hope]].
+Antoinette Ivanov is the chosen successor to the [[Black Crusaders]] after the death of her parents, [[Natz]] and [[Estelle]], however, she was not of age at that time, so [[Lee]] took her place. She took his place after he died in [[Part II - Sanctuary]]. She was born in [[Farther Earth|farther earth]]. She is formally introduced in [[Part II - Sanctuary]], and is the main antagonist and leader of the Black Crusaders in [[Part III - Hope]].
 
 Shortly after rising to power, she mothered an abandoned baby boy and named the possible heir [[Loki|(Deadname) Logan Ivanov]]. However, Logan comes out as transgender, and becomes [[Loki]]. This tarnishes Antoinette’s idea of having a “perfect” child, and she takes out Loki’s eye and exiles her for a year. During this expulsion, Loki meets and befriends [[Persephone]].
 
