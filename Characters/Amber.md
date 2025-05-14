@@ -17,4 +17,4 @@ Element: Fire
 
 Her ability is numbness. She could be attacked in a gruesome or surprising way, and she will not feel any ounce of pain. This is to compensate for the pain she feels everyday at home. The only downside is if [[Emira]] does not heal her by the end of the day, the damage done to her is permanent. 
 
-![[IMG_6245.jpeg]]
+![[Amy.jpeg]]
