@@ -1,0 +1,1 @@
+A half sylph is the resulting offspring between a [[Sylph]] and a [[human]].
