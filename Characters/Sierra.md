@@ -1,3 +1,13 @@
+---
+tags:
+  - blackcrusader
+  - crusader-general
+  - crusader-runaway
+  - far-earth
+  - farther-earth
+  - imp
+  - Part-II-Sanctuary
+---
 Sierra Duran is [[Kieran]]'s mother, She slept with [[Natz]] while she was drunk.
 She was murdered by Natz's wife, [[Estelle]], along with Natz, for his cheating.
 
