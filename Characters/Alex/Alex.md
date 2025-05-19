@@ -36,11 +36,11 @@ Later on his path, he met another lost soul in the city while buying supplies. A
 | Eye color               | Bright yellow-orange                                                                                                      |                 |
 | Clothing                | barkeep's clothes. well kept                                                                                              |                 |
 | Accessories             | none                                                                                                                      |                 |
-| Features                | If tempered, he may become more Nymphan features, such as his horns growing out. He has a Nymph tail all the time though. |                 |
+| Features                | If tempered, he may become more Nymphid features, such as his horns growing out. He has a Nymph tail all the time though. |                 |
 | ### Combat              |                                                                                                                           |                 |
 | Weapons                 | He mainly uses magic, only for defense                                                                                    |                 |
 | Skills                  | He is talented with destructive magic, mainly flames.                                                                     |                 |
-| Abilities               | He tries to avoid using any of his Nymphan abilities because it causes him to regress to his earlier form.                | ![[alexei.png]] |
+| Abilities               | He tries to avoid using any of his Nymphid abilities because it causes him to regress to his earlier form.                | ![[alexei.png]] |
 ![[Alex, Dami.jpg]]
 ![[Alex1.png]]
 ![[Alex2.jpg]]
