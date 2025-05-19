@@ -7,16 +7,16 @@ This story is not yet fully realized in text or comic form; however, it has been
 
 #### Socials
 
+https://www.tumblr.com/kozyeatspho
+
 https://www.tumblr.com/blog/ststchy
 https://www.tumblr.com/stetchy2 (Project specific blog)
-
-https://www.tumblr.com/kozyeatspho
 
 
  Featured Pages: 
 - [[Kidnapped]]
 - [[Aiko’s Goodbye]]
 
-This site (obsidian vault) is BRAND NEW, so many pages are very, very blank. Apologies, we are working on it!
+This site (obsidian vault) is BRAND NEW, so many pages are not finished yet. Apologies, we are working on it!
 
 Thank you!
