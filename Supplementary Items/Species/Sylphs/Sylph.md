@@ -1,7 +1,7 @@
 ---
 aliases:
-  - Sylphan
   - Sylphs
+  - Sylphic
 tags:
   - far-earth
   - farther-earth
