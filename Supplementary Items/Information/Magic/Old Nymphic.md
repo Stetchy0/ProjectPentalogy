@@ -1,0 +1,3 @@
+Old Nymphic refers to one of the first spoken and written languages from [[Farther Earth]]. It was originally created to name all of the living and non-living things in nature, and eventually evolved to a complete language. 
+
+[[Mephisto]]'s essence of chaos, which was born around the same time as the nymphs (as with the rest of Farther Earth,) became bound to some of the words from this language, and the most pure forms of some types of [[Magic]] are spoken spells derived from this language.
