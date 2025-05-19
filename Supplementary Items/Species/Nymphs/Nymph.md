@@ -2,6 +2,7 @@
 aliases:
   - Nymphs
   - Demon (slur)
+  - Nymphid
 tags:
   - far-earth
   - farther-earth
