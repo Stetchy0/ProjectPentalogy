@@ -59,6 +59,68 @@ Maybe she would make it in time after all.
 
 ### //Catch Me If You Can//
 
-A few hours ago.
+“7PM - We interrupt this program for an emergency broadcast. 
 
-“
+Reports are flooding in of a terrorist, leaping from building tops, who is tossing what seem to be explosive balloons. 
+
+The attacker is wearing a pink dress, has long pink pigtails, a party hat, and an apparent clown mask. 
+
+There also seem to be a group of primary colored vigilantes chasing the bomber. Regardless of the sights, CLEAR OFF THE BLOCK ASAP. The promenade will have to be rescheduled. If you don’t want to get blown up, STOP FILMING AND LEAVE. WAIT FOR AUTHORITIES TO ARRIVE BEFORE RETURNING.”
+
+You got that, right? 
+
+Was the television not clear enough? 
+
+Looks like it wasn’t.. okay. Here’s the gist.
+
+Moyo Bal. Chieko Lucero. Konnie Ellis. Amber Hoff. Four students from the city’s high school. They all went about their day normally, Moyo and Chieko grabbed boba together. Konnie walked Amber throughout the city. 
+
+All four of them somehow missed the pink haired clown who brushed past them through the streets. Pedestrian traffic, some would say. 
+
+While no one expected the promenade or festival or whatever it’s called to get bomb threats, these four blew their one and only job - preventing any strange individual from declaring war on the human race. And she did just that.
+
+You already got her description, you don’t need another repetition of pink descriptors.
+
+Loki stood atop a building in the center of the block that was closed. She raised her axe and called out, “what’s up swines??”
+
+The crowd murmured and stared.
+
+Loki clasped her hands, and grinned mischievously. ”I’ve got some exciting news! A spectacle unlike any other is about to commence!” She pointed to a balloon on top of the boba shop Moyo and Chieko stood outside of. “See that balloon over there?” 
+
+Heads turned. Phones popped out.
+
+“Alright, well, that’s a bomb! And if I press one of my silly buttons, it’ll pop! So to put this simply… I’m blowing up your city!” 
+
+Before any objections or disbelief could be expressed, the balloon did in fact have a mini explosion. 
+
+“Hey!” A girl with bright turquoise hair, dark skin, and crystal boots ran in. She readied to fire her now and arrow at the fiend above. “Party’s over! I draw the line at endangering the safety of civilians!” 
+
+Emira Deryaoglu. Of course, no one knew this individual was her. 
+
+She was followed by puffs of colorful smoke and lights, and suddenly there were others with her. 
+
+One yellow haired girl. One black haired individual. One pink haired. And one red haired. This was the first time any of them had seen the rest of the others in the same setting. Some friendly banter broke out between them, and their ignorance of the clown seemed to discourage any growing threat. If these heroes weren’t afraid and were able to crack jokes upon meeting, why should civilians take her seriously?
+
+But something struck a nerve with the clown. I thought the kid would retreat once she realized her grand plan wouldn’t stick, but it only agitated her, and she immediately set off more bombs. She then proceeded to single handedly out maneuver all five of the individuals I assigned the task to. 
+
+I ran into Emira earlier that day, and I warned her that Loki wouldn’t be so easy to defeat. Emira said that if all else were to fail, and if we really needed anymore help, there was one person who could probably get the job done. But that would be a final, final resort. 
+
+None of their abilities would hold out. All would have physically exhausted themselves too soon before they could properly chase the villain. 
+
+So I ran. I ran like my life depended on it. If I had to sneak onto the train I would’ve. But I realized very quickly Aiko would’ve likely missed this train. I made a gamble as to where she’d have gone, and I got lucky finding her by the water. 
+
+The light in her eyes had briefly been vacant. It wasn’t until I called her name that she seemed to snap out of whatever thoughts she was sinking into. 
+
+I trust Emira. She is smart. She is attentive. She is empathetic. She would’ve made the perfect soldier. We were on our last leg. And for many reasons, I promised myself I would not let Loki Ivanov win this battle. 
+
+I had no idea what to expect with entrusting Aiko with my energy. I had no idea what abilities she’d spur, or how her new form would manifest. 
+
+But it was somehow the best and worst decision I ever made in my life.
+
+### //Can You See?//
+
+“Hey are you okay??” 
+
+Amber “Amy” Hoff. Bright red hair and an orange jacket. The girl was on her knees. She looked really out of it. For the past hour, she’d been running over to pops of distant smoke, throwing her hands forward to shrink the impact of the explosion. 
+
+She had tripped two minutes ago, and did not have the energy to stand up. So she was surprised when she saw concerned expressed by the bright stranger 
