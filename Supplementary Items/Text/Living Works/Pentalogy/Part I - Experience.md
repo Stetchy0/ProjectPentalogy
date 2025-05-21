@@ -108,7 +108,7 @@ The stranger chuckled, “Are you sick or something? How was your nap, sleeping 
 
 Carter was yelling through the bindings on his mouth, in anger and desperation, at the man holding his brother, the same man who killed both of his parents. The man growled a bit, “Shut up, kid, there’s nothing you can do. Tranq' them already, would ya?” He kept struggling and trying to break free, but he felt Marx poke his neck with something sharp, and he began to fall asleep almost immediately. He did the same to Leo, who still showed no struggle. They both blacked out. As Carter's eyes grew heavy, he watched the two nymphs rush to his brother, as he started to seize.
 
-He felt..warm.
+He felt.. warm.
 
 -
 
@@ -277,18 +277,128 @@ His eyelids became heavier and heavier. He fell unconscious from his pain and hu
 
 ## Chapter Four
 
-Leo kept his eyes open. He was afraid he wouldn't wake up if he gave in to sleep.
+Leo kept his eyes open, despite his pitch black surroundings. He was afraid he wouldn't wake up if he gave in to sleep.
 
 It was getting more difficult to breathe.
 
-The air was dense and humid, and he felt weak from fatigue and hunger. He felt the rope tied alund his chest and tried moving it down so it would be easier to take deeper breaths. 
+The air was dense and humid, and he felt weak from fatigue and hunger. He felt the rope tied around his chest and tried moving it down so he could take deeper breaths. 
 
 It was futile.
 
-He sighed and rubbed the bandages on his neck. He was starting to feel a bit dizzy from all the shit they keep injecting into him.
+He sighed and rubbed the bandages on his neck. He had bandages all over his body, but only this one bothered him. The burn must've gotten to one of his nerves or something. He would have to ask Carter about it if..
 
-*You could kill them, you know*
+If he ever got to see him again..
+
+He was starting to feel a bit dizzy and nauseous.
+
+*Dammit.. If only I could just get out of these ropes..and..*
+
+I could kill them. Easily.
 
 ...
 
 *Why am I thinking like that?*
+
+Leo once again tried to push the ropes down from his chest. He had no idea why they left his arms unbound, but it seemed he wouldn't be able to escape anyway. The ropes were far too tight.
+
+If only he could just move them slightly down.. He could breathe more.
+
+His vision was weakening as he continued to grasp for breath. Struggling with the ropes had raised his heartbeat and made his breaths more shallow. He focused on trying to calm down.
+
+He heard the door unlock and open. His heart began to race. The lights turned on, but they were very dim. It was just bright enough for him to be able to make out a figure entering the room. She was pushing a small cart that had glassware on it, judging from the clinking sounds it made when it stopped beside him. He pretended his arms were tied. Maybe he could fight back this time.
+
+A soft, almost alluring feminine voice broke the silence, "Your bandages are dirty. You've been messing with your injection wound."
+
+Leo's heart began to race. *What the hell did they give me?*
+
+"I'm.. pleasantly surprised that you are still alive. You seem to have had a positive initial synthesis. There are some unusual physical side effects that I will note."
+
+The lights slowly got brighter. He could see colors again.
+
+The woman was tall and slim. She wore a black dress shirt and nice pants and shoes, with a white lab coat. Long, thin, straight white hair flowed behind her. He almost didn't notice it's considerable length, as it matched her lab coat. She got on her knees in front of him and shone a light in his eyes.
+
+It hurt. Bad. He couldn't help but yelp a bit when his eyes couldn't adjust to the sudden light.
+"Sclera is normal. Pupils.. unilateral dilation.. unusual.. Narrow slit pupils.."
+
+He then noticed a masked person by the door, scribing everything the woman said.
+
+He clenched his fist. He realized that he was merely a guinea pig to them.
+
+Could be worse.
+
+The woman looked at Leo. "How well can you see this room?"
+
+"..I can see perfectly normal."
+
+"What color is my scribe's cloak?"
+
+What a stupid question. "Brown."
+
+She looked back at her scribe, "Increased vision." The scribe nodded and wrote.
+
+He was getting annoyed. His eyes wandered the room before his focus shifted to the cart beside him. The woman kept talking, but it was muffled by his sudden terror.
+
+Scalpels.. Syringes.. a hammer.. flowers?
+
+The woman grabbed his arms, pulling him out of his daze and putting his attention on her. He stared up at her. She chuckled a bit. and belted his wrists to the arms of the chair.
+
+"Eventually, we are going to amplify the effects of your new abilities with some.. medicines. But I have to make sure you are loyal to us." She grinned. "You are a breakthrough. I should thank you, but you won't remember any of this."
+
+She injected something on his arm, despite his struggling. His body began to grow weak, but he was still awake. He couldn't move at all. 
+
+The woman grabbed a large, thin needle and put one of the vials on the end, before aligning it on the inside of his eye socket. Leo was trying to struggle, to scream for help, or beg her to stop, but he was trapped. Spectating his anguish. She hammered it in, and he felt a cold rush in his head, before he fell unconscious.
+
+-
+
+Carter opened his eyes. He was laying on the floor of a glass room. There were many white coats on the other side of the glass. The laboratory was huge. He had a splitting right-side headache around the bridge of his nose, and his right eye was sore.
+
+His nose was running profusely. He wiped it with his arm, and noticed blood, but it was thin. There was a clear liquid mixed with it, and he could smell a strong chemical.. and..
+
+He got up to observe his reflection. He saw a pierce through his eye socket. 
+
+He remembered something from one of his father's books. There was only one operation in which the eye socket would be pierced.. but that was impossible. Lobotomies injure the frontal lobe, and he still had all of his motor skills, and he could still think coherently.
+
+*Did their lobotomy fail?*
+
+He gripped his stomach as he was suddenly overcome with severe hunger. He sat down and leaned on the glass.
+
+*We could escape easily. They're bound to feed you soon, you'll have the energy to break the glass. Easily.*
+
+Carter realized his thoughts were not his own. he rubbed his eyes. *Get a hold of yourself, Carter Smith. You can't lose your mind in here.*
+
+A voice whispered nearby, "Is that your name? Hm." Carter flipped his head around, looking for the voice's source, but the glass was thick enough to be soundproof, and no one else was in the room with him. *That voice was.. impossible.*
+
+He heard it again, "*Yeah. You're losing it.*"
+
+He looked at the ground. *I must've developed some sort of mental.. medical condition after whatever they may have given me after I was knocked out..
+
+"*You've been knocked out since I got here, so that is entirely plausible.*"
+
+Carter was beginning to be nervous. He crossed his legs and closed his eyes. He tried to meditate, or something, to calm down.
+
+There was finally quiet for a few minutes, before someone entered the glass cage somehow. He heard their footsteps. He opened his eyes. There was a long haired woman standing before him. "This one's already been lobotomized? Good.."
+
+Carter realized he had to pretend they were successful, or they'd do it again, and likely wouldn't make the same mistake. *How do I act.. lobotomized?*
+The disembodied voice returned as the woman got n her knees to see him at eye level, *I was conscious. They used an injecting device when they tried to lobotomize you. It was.. that clear liquid.*
+
+Carter realized that they must've injected that substance into his nasal cavity instead of his frontal lobe. Interesting..
+
+*How did I know that?*
+
+"*You didn't know that, I did. Idiot.*"
+
+The woman shined a flashlight into his eyes. Carter winced a little. The woman spoke, "What is your name?"
+
+"Car.." Carter bit his tongue. That was almost a huge mistake. He pretended to slur his speech. "Carn..Connor.."
+
+"Motor skills less than average.. Memory is altered. The lobotomy was successful.. however, he seems mostly unchanged, compared to Leo."
+
+Carter's heart began to race. *What are they doing to him? What are they doing to Felix?"*
+
+He saw curiosity appear in the woman's eyes. She put her hand under his chin and rubbed his neck slightly. Carter whimpered a bit and winced, as he felt a sudden pinch. He instinctively grabbed her hand to make her stop, but she wasn't pinching him. She smiled, "Amazing. We finally perfected synthesis." Carter let go of her hand and watched her get up and leave. Before the worker closed the door behind her, they put a tray of food on the floor.
+
+"*So is your name Carter or Connor? You keep confusing me.*"
+
+*I guess its Connor now. At least, until I figure out how to escape this place.* He reached over and pulled the tray of food closer so he could eat. There was a spoon this time. He was reminded of that girl from before he was knocked out. This soup smelled delicious, just like before. He smiled a bit, and his eyes welled up with tears.
+
+He couldn't eat much.
