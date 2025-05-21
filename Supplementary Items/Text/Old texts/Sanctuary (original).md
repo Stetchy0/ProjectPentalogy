@@ -4,11 +4,7 @@
 
 The sound of a child’s laughter filled the previously silent room. The child came into the world with a happy grin on her face and beautiful eyes. She reached for her mother, but recoiled when she noticed she was sick. Brook cried and attacked her captors to try and save her mother when she felt a small prick on her arm. She became very weak and drowsy. The man holding her took her away and the room darkened. 
 
-  
-
 She remembers the pain that was forced upon her in her early years. In the midst of it though, she learned to escape. She was free from whoever those guys were, but she did miss the blue man. He had blue hair, and he acted blue. So he was blue.
-
-  
 
 She learned to speak from him and through travelers that she would occasionally follow. She used to live somewhere where snow hugged the grass, but then she had moved so far away that sand would hug the grass now. One day, she figured out that there was a lot of sand. You could dig as far down as 3 trees tall, too, and it all was still sand. Now, she lives in a region with more humans than before. She saw them walk by more often, and stone hugged the grass where they walked.
 
