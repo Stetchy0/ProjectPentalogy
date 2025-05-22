@@ -452,13 +452,13 @@ Felix laughed again, "I'm a human."
 "Oh right. So.. what are spiders with *three* legs called?"
 The spider bounced a bit in his hand. He was clearly enjoying the conversation. Felix smiled and sat at the table with him. "Spiders can't have three legs.. I mean, unless they lose five legs somehow."
 
-Felix kept talking to the spider for hours, telling him about the world beyond the dream. This was the first time that he had enjoyed one of his dreams in a long time. He learned that the only thing that the spider really new was that his name was *"Pheren."*
+Felix kept talking to the spider for hours, telling him about the world beyond the dream. This was the first time that he had enjoyed one of his dreams in a long time. He learned that the only thing that the spider really knew was that his name was *"Pheren."*
 
 He was starting to feel smart compared to Pheren. He was then reminded of Carter. He knows so much more about the world than Felix. His expression darkened a bit. 
 
 Pheren noticed, "What's wrong?"
 
-"I don't know if my brother is safe. Before I fell asleep, we were kidnapped by.. I don't know who, but I assume bad people."
+"I don't know if my brother is safe. Before I fell asleep, I think we were kidnapped by.. I don't know who, but I assume bad people."
 
 "If you learned all of this stuff from him, then he must be really really smart."
 
@@ -487,7 +487,7 @@ Other voices, though muffled, became more clear. The logs of his home turned int
 
 "*what do humans eat?"
 
-"Oh, lots of things. We eat beef stew, bread, tomatoes, porridge.. Oh! Steaks. Steaks are really good too.."
+"Oh, lots of things. We eat soup, bread, tomatoes, porridge.. Oh! Steaks. Steaks are really good too.."
 
 He walked to the bars to see if he could fit through them, while he kept listing his favorite foods for Pheren. It helped ease his hunger, surprisingly.
 
@@ -504,7 +504,7 @@ He cautiously obeyed. The man almost seemed afraid of him. He gestured in front 
 
 Felix noticed that the hall was really just a corridor. The only other thing here was the door out.
 
-The man opened the door. It emptied into a room, no, a study. While the walls were still metal paneling, it was cleaner and well decorated. There was a nice wooden desk in the center. He walked over and sat at the desk. Felix just looked around the room. The man snapped his fingers, and a person, supposedly a servant, who was wearing a hooded cloak and a mask that reminded him of plague doctors pulled a chair up to the desk, opposite the man. Felix sat down and observed the man closer.
+The man opened the door. It emptied into a room, no, a study. While the walls were still metal paneling, it was cleaner and well decorated. There was a nice wooden desk in the center. He walked over and sat at the desk. Felix just looked around the room. The man snapped his fingers, and a person, supposedly a servant, who was wearing a hooded cloak and a mask that reminded him of a plague doctor's pulled a chair up to the desk, opposite the man. Felix sat down and observed the man closer.
 
 "You have burns on your face, what happened?"
 
@@ -520,7 +520,9 @@ Pheren chimed in, *"Who are your parents? Are they like your brother?"*
 
 "Y-yeah.." A tear streamed down his cheek. "They.. were really important to me, just like Carter is."
 
-The man raised an eyebrow, "You're talking to someone. You.." He got up. Felix cowered a bit. "N-no I just.."
+The man raised an eyebrow, "You're talking to someone. You.." He got up abruptly. 
+
+Felix cowered a bit. "N-no I just.."
 
 "No, this is great! Surprising, but great news."
 
@@ -532,7 +534,7 @@ After about 10 minutes of walking with the servant's guidance, they made it to a
 
 Felix walked inside. There were maybe a dozen doctors or scientists.. smart people, buzzing around the lab. He saw a glass room near the center of the large room and.. His brother. Carter was in there!
 
-He ran over and looked inside. He wasn't wearing a shirt. He had scales all over his back and neck, and his hair was lighter than before. He wasn't sure this was his brother until his face turned towards him, and their eyes met. Carter looked away swiftly and held his legs to his chest.
+He ran over and looked inside. He wasn't wearing a shirt. He had green scales all over his back and neck, and his hair was lighter than before. He wasn't sure this was his brother until his face turned towards him, and their eyes met. Carter looked away swiftly and held his legs to his chest.
 
 "*Your brother is very.. strange. He doesn't look much like you. Are you sure you two are related?*"
 
@@ -550,13 +552,13 @@ The servant put his mask back on. "Sergeant Marx has appointed me as Felix's sur
 
 "His room is behind the smokers. Give him a mask."
 
-The servant did so, and led Felix to a bedroom, that was inside the lab. He shut the door behind them. "They put me here to keep an eye on you. Do not be fooled. And try to avoid inhaling the smoke from those furnaces. They are toxic to humans. The furnaces are not operating at the moment. Here is a respiratory protection unit."
+The servant did so, and led Felix to a bedroom, that was inside the lab. He shut the door behind them. "They put me here to keep an eye on you. Do not be fooled. And try to avoid inhaling the smoke from those furnaces. They are toxic to humans. The furnaces are not operating at the moment, however, here is a respiratory protection unit. Be sure to utilize this device when you leave this room, as to protect yourself from the fumes that may escape the smoke chamber."
 
-He handed him a gas mask, and showed him how to operate it, before he spoke once more, "If you need anything, just find me. I am General Zephyr."
+He handed him a gas mask, and showed him how to operate it, before he spoke once more, "If you need anything, just find me. I am named General Zephyr."
 
 "Can you bring some food?"
 
-"There is a meal waiting beside your bed already. I must leave now, I have other matters to attend to. Do not speak of my advice. I am merely.. an item to them."
+There is a meal waiting beside your bed already. I must leave now, I have other matters to attend to. Do not speak of my advice. I am merely.. an item to them."
 
 Zephyr left the room, and shut the door behind him. Felix sighed and sat on the bed. There was a bowl of some sort of beef stew with rice, and a few rolls beside it. It was still hot. He picked it up and ate some. He chuckled to all of his friend's inquiries, "Pheren, this is *beef stew*."
 
@@ -564,5 +566,5 @@ Zephyr left the room, and shut the door behind him. Felix sighed and sat on the 
 
 "The white stuff is rice. It's a type of grain."
 
-His soup was cold by the time he finished it, but he didn't mind. Pheren was great company. He put his dishes back on the nightstand and laid down to sleep. He hadn't been awake for this long in a while, too.
+His soup was cold by the time he finished it, because of their chatter, but he didn't mind. Pheren was great company. He put his dishes back on the nightstand before he laid down to sleep. He hadn't been awake for this long in a while, too.
 
