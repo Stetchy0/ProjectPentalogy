@@ -1,5 +1,7 @@
 ## Chapter One
 
+#### *File 1
+
 A log crumbled underneath its weight in the furnace keeping the cabin warm. One of the children in the house, a 14 year old boy, put on his fur coat and grabbed a basket to go retrieve more wood. Winter was thawing and flowers were starting to bloom, but the air hadn’t quite started to warm up just yet.
 
 As Carter was putting on his gloves and about to leave, his younger brother, who was only 11, grabbed his basket and looked up at him, eager to help. Carter sighed, “Felix, I’m glad you want to help, but I don’t want you getting sick.” He could see the bags under Felix’s eyes already. Felix retaliated, “I’m sick of being stuck in the house! I’ve been inside all winter, and it’s finally spring! Can I please help? I’ll stay awake as long as I can and we will bring home hundreds of sticks!” Carter chuckled, “As long as it’s okay with Mom.” 
@@ -64,6 +66,8 @@ The two left the shop as Carter put the coin bag in his pocket. Leo chuckled, �
 
 ## Chapter Two
 
+#### *File 2
+
 Leonidas had to stay at the flower shop a bit longer than anticipated. His mother scolded him for just running off because she needed his help with the shop. The sun had already set completely before Leo finally made it out. He had both baskets of sticks with him as he followed the cobbled path towards Carter’s family’s cabin.
 
 The air was very cold, and Leo had stupidly forgot to put on a coat. He looked forward to finally getting into the cabin as he approached it. He noticed the lights were dim in the cabin, and realized that they needed the wood he was carrying. _Of course! If Carter was collecting these limbs in the morning, then they definitely needed them by the night!_ He quickened his pace.
@@ -110,7 +114,7 @@ Carter was yelling through the bindings on his mouth, in anger and desperation, 
 
 He felt.. warm.
 
--
+#### *File 4*
 
 Carter woke up not soon after. He was accidentally given a smaller dose. He and Leo were alone in a section of a carriage, tied up, but their mouths weren't covered. Carter soon began to feel that he was in pain. He was covered in soot and burns, and Leo was too. He could smell smoke.
 
@@ -195,6 +199,8 @@ Carter looked back at Marx before he administered a full dose of tranquilizer, p
 
 ## Chapter Three
 
+#### *File 5
+
 Carter woke up alone in a windowless room. It was dimly lit, just enough to see the reflections on the blank walls, no.. mirrors. He saw his reflection across the room. He was thinner than before.
 
 *How long have I been out?*
@@ -277,6 +283,8 @@ His eyelids became heavier and heavier. He fell unconscious from his pain and hu
 
 ## Chapter Four
 
+#### *File 6
+
 Leo kept his eyes open, despite his pitch black surroundings. He was afraid he wouldn't wake up if he gave in to sleep.
 
 It was getting more difficult to breathe.
@@ -348,7 +356,7 @@ She injected something on his arm, despite his struggling. His body began to gro
 
 The woman grabbed a large, thin needle and put one of the vials on the end, before aligning it on the inside of his eye socket. Leo was trying to struggle, to scream for help, or beg her to stop, but he was trapped. Spectating his anguish. She hammered it in, and he felt a cold rush in his head, before he fell unconscious.
 
--
+#### *File 7*
 
 Carter opened his eyes. He was laying on the floor of a glass room. There were many white coats on the other side of the glass. The laboratory was huge. He had a splitting right-side headache around the bridge of his nose, and his right eye was sore.
 
@@ -402,3 +410,159 @@ He saw curiosity appear in the woman's eyes. She put her hand under his chin and
 *I guess its Connor now. At least, until I figure out how to escape this place.* He reached over and pulled the tray of food closer so he could eat. There was a spoon this time. He was reminded of that girl from before he was knocked out. This soup smelled delicious, just like before. He smiled a bit, and his eyes welled up with tears.
 
 He couldn't eat much.
+
+#### *File 8*
+
+*I don't know how long I've been asleep. I've been dreaming for a while.*
+
+Felix walked around his dream. It was his family's cabin, and outside was and endless grassland. There were no trees, and the grass made pleasant brush noises as the wind gave them sway. He could almost feel the sun on his skin, but it was all only a dream.
+
+He was starting to grow a bit weary of this landscape. It felt like he had been here for weeks, which meant he had probably been asleep for days, at least. There was no way he could tell for sure until he woke up.
+
+*If* he woke up.
+
+He sat in the grass and watched the clear sky, half-hoping to conjure a cloud, or rain. Nothing would happen. He sighed and laid down, with his arms spread in the reeds. He closed his eyes for a moment and tried to relax. He tried to forget what was waiting for him in the real world.
+
+He felt something crawl on his face. He opened his eyes and saw a small spider on his nose. He yelled a bit in surprise and brushed it off swiftly before standing back up. 
+
+"Maybe I shouldn't lay in the grass.."
+
+The spider crawled up one of the reeds. Felix noticed it had two small, golden, beady eyes. He observed closer.
+
+"Are you Felix?"
+
+Felix's eyes widened. "You can speak? Hm. Maybe my dreams get weirder the longer I'm asleep."
+
+"....*Are* you Felix?"
+
+"Well.. yeah. I mean, you should know that, since you're just a figment of my imagination that I have made up in this dream somehow."
+
+"Wait, I'm made up? I'm pretty sure I'm real. Wait.. Am I? How do I know if *you're* real?"
+
+Felix was a bit astounded, and he couldn't help but laugh. "I'm just a human and you're a talking spider."
+
+"What is a spider?"
+
+Felix picked the spider off of the tip of the reed and put him in his palm as he walked back to the cabin. "A spider is like a bug, but it isn't. Bugs have six legs, and you have eight." 
+
+"But you only have two legs."
+
+Felix laughed again, "I'm a human."
+
+"Oh right. So.. what are spiders with *three* legs called?"
+The spider bounced a bit in his hand. He was clearly enjoying the conversation. Felix smiled and sat at the table with him. "Spiders can't have three legs.. I mean, unless they lose five legs somehow."
+
+Felix kept talking to the spider for hours, telling him about the world beyond the dream. This was the first time that he had enjoyed one of his dreams in a long time. He learned that the only thing that the spider really new was that his name was *"Pheren."*
+
+He was starting to feel smart compared to Pheren. He was then reminded of Carter. He knows so much more about the world than Felix. His expression darkened a bit. 
+
+Pheren noticed, "What's wrong?"
+
+"I don't know if my brother is safe. Before I fell asleep, we were kidnapped by.. I don't know who, but I assume bad people."
+
+"If you learned all of this stuff from him, then he must be really really smart."
+
+"Heh, yeah. I suppose. Maybe he knows how to get out of this."
+
+....
+
+Felix almost didn't want to wake up. He had never been able to have long conversations like this.
+
+Pheren continued to inquire about everything in the outside world, and Felix answered all he could.
+
+He began to hear other voices. "Pheren, I'm waking up soon. If you're not real, I will miss you."
+
+Pheren chuckled, "I'm not gonna run away or anything."
+
+
+Other voices, though muffled, became more clear. The logs of his home turned into metal panels, and he was facing bars from across the room. He was leaned on bare metal, and his bones ached from laying in that position for so long.
+
+*"Geez, it looks kinda sad in here compared to the cabin."*
+
+"Pheren? You.. You're real?"
+
+*"I'm real? Woah! Wait, does that mean you aren't?"*
+
+"No, I'm real. I'm.. really hungry actually." He got up and stretched.
+
+"*what do humans eat?"
+
+"Oh, lots of things. We eat beef stew, bread, tomatoes, porridge.. Oh! Steaks. Steaks are really good too.."
+
+He walked to the bars to see if he could fit through them, while he kept listing his favorite foods for Pheren. It helped ease his hunger, surprisingly.
+
+He wasn't paying attention enough to notice a man had entered the hallway, or whatever kind of room he was in. He kept listing foods, and describing them.
+
+The man interrupted, "Who are you talking to?"
+
+Felix flinched. He had almost forgotten that the world was bigger than him and Pheren.
+"Er.. myself."
+
+The man stepped closer and unlocked the cell. "Come here."
+
+He cautiously obeyed. The man almost seemed afraid of him. He gestured in front of him, "Walk with me."
+
+Felix noticed that the hall was really just a corridor. The only other thing here was the door out.
+
+The man opened the door. It emptied into a room, no, a study. While the walls were still metal paneling, it was cleaner and well decorated. There was a nice wooden desk in the center. He walked over and sat at the desk. Felix just looked around the room. The man snapped his fingers, and a person, supposedly a servant, who was wearing a hooded cloak and a mask that reminded him of plague doctors pulled a chair up to the desk, opposite the man. Felix sat down and observed the man closer.
+
+"You have burns on your face, what happened?"
+
+The man's eyes widened a bit, before he rubbed his chin. "You don't remember what happened, huh?"
+
+"Is..Is my brother ok? What's going on?"
+
+"There was a fire at your cabin. Both of your parents passed away, unfortunately, but your brother and his friend made it out safely. Think of this place as a home for.. misplaced children." The man had a somewhat solemn expression.
+
+It took Felix a moment to realize what he had said. He felt his heart beating in his ears. "M-my parents are gone?"
+
+Pheren chimed in, *"Who are your parents? Are they like your brother?"*
+
+"Y-yeah.." A tear streamed down his cheek. "They.. were really important to me, just like Carter is."
+
+The man raised an eyebrow, "You're talking to someone. You.." He got up. Felix cowered a bit. "N-no I just.."
+
+"No, this is great! Surprising, but great news."
+
+"What are you talking about..?" Felix yawned.
+
+"Hm.. Don't worry about it for now. I'll see that you are taken to your brother." He glanced to the servant, who gestured Felix to walk in front of him. He wiped his eyes and did so. They walked down what seemed like a labyrinth of halls with many turns and doors.
+
+After about 10 minutes of walking with the servant's guidance, they made it to a large set of doors. There was a laboratory inside.
+
+Felix walked inside. There were maybe a dozen doctors or scientists.. smart people, buzzing around the lab. He saw a glass room near the center of the large room and.. His brother. Carter was in there!
+
+He ran over and looked inside. He wasn't wearing a shirt. He had scales all over his back and neck, and his hair was lighter than before. He wasn't sure this was his brother until his face turned towards him, and their eyes met. Carter looked away swiftly and held his legs to his chest.
+
+"*Your brother is very.. strange. He doesn't look much like you. Are you sure you two are related?*"
+
+"Yes Pheren. He must be.. sick or something." He yawned. "P-probably caught something while he was helping Father."
+
+The servant had caught up to them. He took his mask off. He was very pale, and he had sleek black hair. His eyes were black, except his white irises. He put his hand on Felix's shoulder and spoke softly. "Sergeant Marx has instructed me to inform you that your brother is gravely ill. However, I have begun to see the error of our leader's ways, and I am obliged to tell you the truth. These men are not to be trusted."
+
+A tall man with red eyes and brownish hair walked up behind them. "This is the sleeping beauty? Huh. He looks different than before."
+
+The servant put his mask back on. "Sergeant Marx has appointed me as Felix's surveillance. Where shall the boy be kept?"
+
+"Geez, if you're gonna be all tight assed with the titles, at least call me General Natz. No one does anymore."
+
+"Y-yes sir.. General Natz."
+
+"His room is behind the smokers. Give him a mask."
+
+The servant did so, and led Felix to a bedroom, that was inside the lab. He shut the door behind them. "They put me here to keep an eye on you. Do not be fooled. And try to avoid inhaling the smoke from those furnaces. They are toxic to humans. The furnaces are not operating at the moment. Here is a respiratory protection unit."
+
+He handed him a gas mask, and showed him how to operate it, before he spoke once more, "If you need anything, just find me. I am General Zephyr."
+
+"Can you bring some food?"
+
+"There is a meal waiting beside your bed already. I must leave now, I have other matters to attend to. Do not speak of my advice. I am merely.. an item to them."
+
+Zephyr left the room, and shut the door behind him. Felix sighed and sat on the bed. There was a bowl of some sort of beef stew with rice, and a few rolls beside it. It was still hot. He picked it up and ate some. He chuckled to all of his friend's inquiries, "Pheren, this is *beef stew*."
+
+"And that is bread."
+
+"The white stuff is rice. It's a type of grain."
+
+His soup was cold by the time he finished it, but he didn't mind. Pheren was great company. He put his dishes back on the nightstand and laid down to sleep. He hadn't been awake for this long in a while, too.
+
